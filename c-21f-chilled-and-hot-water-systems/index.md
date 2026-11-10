@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Chilled and Hot Water Systems Contractor (C-21F) Exam Book Package](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/book-package/)
+[Nevada Chilled and Hot Water Systems Contractor (C-21F) Exam Book Package](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/nevada-chilled-and-hot-water-systems-contractor-c-21f-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $945 (was $1,045) Save 10%
-[Buy now](https://1examprep.com/cart/45740514508857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/book-package/)
+[Buy now](https://1examprep.com/cart/45740514508857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/nevada-chilled-and-hot-water-systems-contractor-c-21f-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Chilled and Hot Water Systems Contractor (C-21F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/exam-room-books/)
+[Nevada Chilled and Hot Water Systems Contractor (C-21F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/nevada-chilled-and-hot-water-systems-contractor-c-21f-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $495 (was $595) Save 17%
-[Buy now](https://1examprep.com/cart/45815324704825:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815324704825:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/nevada-chilled-and-hot-water-systems-contractor-c-21f-books-allowed-into-exam-package/)
 
 ## How do the Chilled and Hot Water Systems Contractor (C-21F) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/book-package/) | the reference books, new and unmarked | $945
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/exam-room-books/) | the references PSI allows in the exam room | $495
+[Book Package](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/nevada-chilled-and-hot-water-systems-contractor-c-21f-exam-book-package/) | the reference books, new and unmarked | $945
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/nevada-chilled-and-hot-water-systems-contractor-c-21f-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $495
 
 ## How does the Chilled and Hot Water Systems Contractor (C-21F) exam work?
 

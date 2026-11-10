@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Tiling Contractor (C-20) Exam Book Package](https://passyournevadacontractorexam.com/c-20-tiling/book-package/)
+[Nevada Tiling Contractor (C-20) Exam Book Package](https://passyournevadacontractorexam.com/c-20-tiling/nevada-tiling-contractor-c-20-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $345 (was $445) Save 22%  to $445
-[Buy now](https://1examprep.com/cart/46393094963257:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-20-tiling/book-package/)
+[Buy now](https://1examprep.com/cart/46393094963257:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-20-tiling/nevada-tiling-contractor-c-20-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Tiling Contractor (C-20) Exam Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-20-tiling/highlighted-tabbed/)
+[Nevada Tiling Contractor (C-20) Exam Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-20-tiling/nevada-tiling-contractor-c-20-exam-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $445 (was $645) Save 31%
-[Buy now](https://1examprep.com/cart/45814547349561:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-20-tiling/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/45814547349561:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-20-tiling/nevada-tiling-contractor-c-20-exam-highlighted-and-tabbed-book-package/)
 
 ## How do the Tiling Contractor (C-20) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-20-tiling/book-package/) | the reference books, new and unmarked | $345
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-20-tiling/highlighted-tabbed/) | the reference books already highlighted and tabbed | $445
+[Book Package](https://passyournevadacontractorexam.com/c-20-tiling/nevada-tiling-contractor-c-20-exam-book-package/) | the reference books, new and unmarked | $345
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-20-tiling/nevada-tiling-contractor-c-20-exam-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $445
 
 ## How does the Tiling Contractor (C-20) exam work?
 

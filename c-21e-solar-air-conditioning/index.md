@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Solar Air Conditioning Contractor (C-21E) Exam Book Package](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/book-package/)
+[Nevada Solar Air Conditioning Contractor (C-21E) Exam Book Package](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/nevada-solar-air-conditioning-contractor-c-21e-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $295 (was $395) Save 25%
-[Buy now](https://1examprep.com/cart/45740496388153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/book-package/)
+[Buy now](https://1examprep.com/cart/45740496388153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/nevada-solar-air-conditioning-contractor-c-21e-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Solar Air Conditioning Contractor (C-21E) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/exam-room-books/)
+[Nevada Solar Air Conditioning Contractor (C-21E) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/nevada-solar-air-conditioning-contractor-c-21e-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815323754553:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815323754553:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/nevada-solar-air-conditioning-contractor-c-21e-books-allowed-into-exam-package/)
 
 ## How do the Solar Air Conditioning Contractor (C-21E) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/book-package/) | the reference books, new and unmarked | $295
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/nevada-solar-air-conditioning-contractor-c-21e-exam-book-package/) | the reference books, new and unmarked | $295
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/nevada-solar-air-conditioning-contractor-c-21e-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Solar Air Conditioning Contractor (C-21E) exam work?
 

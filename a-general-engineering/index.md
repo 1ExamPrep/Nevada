@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada General Engineering Contractor (A) Exam Book Package](https://passyournevadacontractorexam.com/a-general-engineering/book-package/)
+[Nevada General Engineering Contractor (A) Exam Book Package](https://passyournevadacontractorexam.com/a-general-engineering/nevada-general-engineering-contractor-a-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,795 (was $1,895) Save 5%
-[Buy now](https://1examprep.com/cart/45726595743801:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-general-engineering/book-package/)
+[Buy now](https://1examprep.com/cart/45726595743801:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-general-engineering/nevada-general-engineering-contractor-a-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada General Engineering Contractor (A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-general-engineering/exam-room-books/)
+[Nevada General Engineering Contractor (A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-general-engineering/nevada-general-engineering-contractor-a-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $745 (was $845) Save 12%
-[Buy now](https://1examprep.com/cart/45814551412793:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-general-engineering/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45814551412793:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-general-engineering/nevada-general-engineering-contractor-a-books-allowed-into-exam-package/)
 
 ## How do the General Engineering Contractor (A) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-general-engineering/book-package/) | the reference books, new and unmarked | $1,795
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-general-engineering/exam-room-books/) | the references PSI allows in the exam room | $745
+[Book Package](https://passyournevadacontractorexam.com/a-general-engineering/nevada-general-engineering-contractor-a-exam-book-package/) | the reference books, new and unmarked | $1,795
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-general-engineering/nevada-general-engineering-contractor-a-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $745
 
 ## How does the General Engineering Contractor (A) exam work?
 

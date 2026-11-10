@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Plumbing And Heating Contractor (C-1) Exam Book Package](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/book-package/)
+[Nevada Plumbing And Heating Contractor (C-1) Exam Book Package](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/nevada-plumbing-and-heating-contractor-c-1-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $2,595 (was $2,695) Save 4%
-[Buy now](https://1examprep.com/cart/45740021841977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/book-package/)
+[Buy now](https://1examprep.com/cart/45740021841977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/nevada-plumbing-and-heating-contractor-c-1-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Plumbing And Heating Contractor (C-1) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/exam-room-books/)
+[Nevada Plumbing And Heating Contractor (C-1) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/nevada-plumbing-and-heating-contractor-c-1-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $1,195 (was $1,295) Save 8%
-[Buy now](https://1examprep.com/cart/45815183802425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815183802425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/nevada-plumbing-and-heating-contractor-c-1-books-allowed-into-exam-package/)
 
 ## How do the Plumbing and Heating Contractor (C-1) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/book-package/) | the reference books, new and unmarked | $2,595
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/exam-room-books/) | the references PSI allows in the exam room | $1,195
+[Book Package](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/nevada-plumbing-and-heating-contractor-c-1-exam-book-package/) | the reference books, new and unmarked | $2,595
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/nevada-plumbing-and-heating-contractor-c-1-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $1,195
 
 ## How does the Plumbing and Heating Contractor (C-1) exam work?
 

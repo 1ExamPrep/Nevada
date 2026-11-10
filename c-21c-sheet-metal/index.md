@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Sheet Metal Contractor (C-21C) Exam Book Package](https://passyournevadacontractorexam.com/c-21c-sheet-metal/book-package/)
+[Nevada Sheet Metal Contractor (C-21C) Exam Book Package](https://passyournevadacontractorexam.com/c-21c-sheet-metal/nevada-sheet-metal-contractor-c-21c-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,495 (was $1,595) Save 6%
-[Buy now](https://1examprep.com/cart/45740482658361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21c-sheet-metal/book-package/)
+[Buy now](https://1examprep.com/cart/45740482658361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21c-sheet-metal/nevada-sheet-metal-contractor-c-21c-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Sheet Metal Contractor (C-21C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21c-sheet-metal/exam-room-books/)
+[Nevada Sheet Metal Contractor (C-21C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21c-sheet-metal/nevada-sheet-metal-contractor-c-21c-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $445 (was $545) Save 18%
-[Buy now](https://1examprep.com/cart/45815322673209:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21c-sheet-metal/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815322673209:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21c-sheet-metal/nevada-sheet-metal-contractor-c-21c-books-allowed-into-exam-package/)
 
 ## How do the Sheet Metal Contractor (C-21C) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-21c-sheet-metal/book-package/) | the reference books, new and unmarked | $1,495
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21c-sheet-metal/exam-room-books/) | the references PSI allows in the exam room | $445
+[Book Package](https://passyournevadacontractorexam.com/c-21c-sheet-metal/nevada-sheet-metal-contractor-c-21c-exam-book-package/) | the reference books, new and unmarked | $1,495
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21c-sheet-metal/nevada-sheet-metal-contractor-c-21c-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $445
 
 ## How does the Sheet Metal Contractor (C-21C) exam work?
 

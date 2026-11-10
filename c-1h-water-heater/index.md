@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Water Heater Contractor (C-1H) Exam Book Package](https://passyournevadacontractorexam.com/c-1h-water-heater/book-package/)
+[Nevada Water Heater Contractor (C-1H) Exam Book Package](https://passyournevadacontractorexam.com/c-1h-water-heater/nevada-water-heater-contractor-c-1h-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $345 (was $445) Save 22%
-[Buy now](https://1examprep.com/cart/45740116508729:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1h-water-heater/book-package/)
+[Buy now](https://1examprep.com/cart/45740116508729:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1h-water-heater/nevada-water-heater-contractor-c-1h-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Water Heater Contractor (C-1H) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1h-water-heater/exam-room-books/)
+[Nevada Water Heater Contractor (C-1H) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1h-water-heater/nevada-water-heater-contractor-c-1h-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815211917369:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1h-water-heater/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815211917369:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1h-water-heater/nevada-water-heater-contractor-c-1h-books-allowed-into-exam-package/)
 
 ## How do the Water Heater Contractor (C-1H) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-1h-water-heater/book-package/) | the reference books, new and unmarked | $345
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1h-water-heater/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/c-1h-water-heater/nevada-water-heater-contractor-c-1h-exam-book-package/) | the reference books, new and unmarked | $345
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1h-water-heater/nevada-water-heater-contractor-c-1h-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Water Heater Contractor (C-1H) exam work?
 

@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Lines to Transmit Electricity (C-2E) Exam Book Package](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/book-package/)
+[Nevada Lines to Transmit Electricity (C-2E) Exam Book Package](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-c-2e-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $645 (was $745) Save 13%
-[Buy now](https://1examprep.com/cart/45740181389369:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/book-package/)
+[Buy now](https://1examprep.com/cart/45740181389369:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-c-2e-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Lines to Transmit Electricity (C-2E) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/exam-room-books/)
+[Nevada Lines to Transmit Electricity (C-2E) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-c-2e-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815286136889:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815286136889:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-c-2e-books-allowed-into-exam-package/)
 
 ## How do the Lines to Transmit Electricity Contractor (C-2E) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/book-package/) | the reference books, new and unmarked | $645
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-c-2e-exam-book-package/) | the reference books, new and unmarked | $645
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-c-2e-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Lines to Transmit Electricity Contractor (C-2E) exam work?
 

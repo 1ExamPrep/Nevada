@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Solar Water Heating Contractor (C-37A) Exam Book Package](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/book-package/)
+[Nevada Solar Water Heating Contractor (C-37A) Exam Book Package](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/nevada-solar-water-heating-contractor-c-37a-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $295 (was $395) Save 25%
-[Buy now](https://1examprep.com/cart/45740563562553:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/book-package/)
+[Buy now](https://1examprep.com/cart/45740563562553:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/nevada-solar-water-heating-contractor-c-37a-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Solar Water Heating Contractor (C-37A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/exam-room-books/)
+[Nevada Solar Water Heating Contractor (C-37A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/nevada-solar-water-heating-contractor-c-37a-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815331881017:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815331881017:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/nevada-solar-water-heating-contractor-c-37a-books-allowed-into-exam-package/)
 
 ## How do the Solar Water Heating Contractor (C-37A) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/book-package/) | the reference books, new and unmarked | $295
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/nevada-solar-water-heating-contractor-c-37a-exam-book-package/) | the reference books, new and unmarked | $295
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/nevada-solar-water-heating-contractor-c-37a-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Solar Water Heating Contractor (C-37A) exam work?
 

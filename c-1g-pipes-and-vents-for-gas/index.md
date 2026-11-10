@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Pipes And Vents For Gas Contractor (C-1G) Exam Book Package](https://passyournevadacontractorexam.com/c-1g-pipes-and-vents-for-gas/book-package/)
+[Nevada Pipes And Vents For Gas Contractor (C-1G) Exam Book Package](https://passyournevadacontractorexam.com/c-1g-pipes-and-vents-for-gas/nevada-pipes-and-vents-for-gas-contractor-c-1g-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $745 (was $845) Save 12%
-[Buy now](https://1examprep.com/cart/45740058738745:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1g-pipes-and-vents-for-gas/book-package/)
+[Buy now](https://1examprep.com/cart/45740058738745:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1g-pipes-and-vents-for-gas/nevada-pipes-and-vents-for-gas-contractor-c-1g-exam-book-package/)
 
 ## How do the Pipes and Vents for Gas Contractor (C-1G) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-1g-pipes-and-vents-for-gas/book-package/) | the reference books, new and unmarked | $745
+[Book Package](https://passyournevadacontractorexam.com/c-1g-pipes-and-vents-for-gas/nevada-pipes-and-vents-for-gas-contractor-c-1g-exam-book-package/) | the reference books, new and unmarked | $745
 
 ## How does the Pipes and Vents for Gas Contractor (C-1G) exam work?
 

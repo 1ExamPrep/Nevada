@@ -48,130 +48,130 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Residential Wiring Contractor (C-2F) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-2f-residential-wiring/online-practice-exams/)
+[Nevada Residential Wiring Contractor (C-2F) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235701837881:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235701837881:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Residential Wiring Contractor (C-2F) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-2f-residential-wiring/online-course/)
+[Nevada Residential Wiring Contractor (C-2F) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46291752353849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/online-course/)
+[Buy now](https://1examprep.com/cart/46291752353849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-online-exam-prep/)
 
 ## Residential Wiring Contractor (C-2F) options: books for the exam room
 
 4 products of the 12 Residential Wiring Contractor (C-2F) options, from $199.
 
 Book Package
-[Nevada Residential Wiring Contractor (C-2F) Exam Book Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/book-package/)
+[Nevada Residential Wiring Contractor (C-2F) Exam Book Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $325 (was $425) Save 24%  to $545
-[Buy now](https://1examprep.com/cart/46390745432121:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/book-package/)
+[Buy now](https://1examprep.com/cart/46390745432121:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Residential Wiring Contractor (C-2F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-books/)
+[Nevada Residential Wiring Contractor (C-2F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
-[Buy now](https://1examprep.com/cart/46390765649977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46390765649977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Residential Wiring Contractor (C-2F) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/highlighted-tabbed/)
+[Nevada Residential Wiring Contractor (C-2F) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $545 (was $745) Save 27%  to $840
-[Buy now](https://1examprep.com/cart/46390777511993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46390777511993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Residential Wiring Contractor (C-2F) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-books-highlighted/)
+[Nevada Residential Wiring Contractor (C-2F) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%  to $694
-[Buy now](https://1examprep.com/cart/46390783868985:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46390783868985:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Residential Wiring Contractor (C-2F) options: live training and rentals
 
 5 products of the 12 Residential Wiring Contractor (C-2F) options, from $595.
 
 Live Virtual Training
-[Nevada Residential Wiring Contractor (C-2F) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-2f-residential-wiring/live-training/)
+[Nevada Residential Wiring Contractor (C-2F) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46276396286009:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/live-training/)
+[Buy now](https://1examprep.com/cart/46276396286009:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Residential Wiring Contractor (C-2F) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/rental-package/)
+[Nevada Residential Wiring Contractor (C-2F) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,135 (was $1,435) Save 21%  to $1,885
-[Buy now](https://1examprep.com/cart/46291753893945:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/rental-package/)
+[Buy now](https://1examprep.com/cart/46291753893945:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Residential Wiring Contractor (C-2F) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-rental/)
+[Nevada Residential Wiring Contractor (C-2F) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $989 (was $1,289) Save 23%  to $1,739
-[Buy now](https://1examprep.com/cart/46291754156089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46291754156089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Residential Wiring Contractor (C-2F) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-2f-residential-wiring/ultimate-rental/)
+[Nevada Residential Wiring Contractor (C-2F) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,560 (was $1,960) Save 20%
-[Buy now](https://1examprep.com/cart/45852125265977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852125265977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Residential Wiring Contractor (C-2F) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/ultimate-exam-room/)
+[Nevada Residential Wiring Contractor (C-2F) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,414 (was $1,814) Save 22%
-[Buy now](https://1examprep.com/cart/45859090366521:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45859090366521:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Residential Wiring Contractor (C-2F) option: all-inclusive and licensing services
 
 1 product of the 12 Residential Wiring Contractor (C-2F) options, from $2,560.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Residential Wiring Contractor (C-2F) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-2f-residential-wiring/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Residential Wiring Contractor (C-2F) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-2f-residential-wiring/the-1-package-all-inclusive-nevada-residential-wiring-contractor-c-2f-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,560 (was $3,060) Save 16%
-[Buy now](https://1examprep.com/cart/45858682634297:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/the-1-package/)
+[Buy now](https://1examprep.com/cart/45858682634297:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2f-residential-wiring/the-1-package-all-inclusive-nevada-residential-wiring-contractor-c-2f-exam-licensing-and-business-setup-solution/)
 
 ## How do the Residential Wiring Contractor (C-2F) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-2f-residential-wiring/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2f-residential-wiring/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/book-package/) | the reference books, new and unmarked | $325
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-2f-residential-wiring/highlighted-tabbed/) | the reference books already highlighted and tabbed | $545
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-2f-residential-wiring/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-2f-residential-wiring/rental-package/) | rental books plus the online course | $1,135
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-2f-residential-wiring/exam-room-rental/) | rental exam-room books plus the online course | $989
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/ultimate-rental/) | tabbed rental books, course and live training | $1,560
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-2f-residential-wiring/ultimate-exam-room/) | exam-room books, course and application help | $1,414
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-2f-residential-wiring/the-1-package/) | exam prep, books, paperwork and business setup | $2,560
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-book-package/) | the reference books, new and unmarked | $325
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $545
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-and-courses-rental-package/) | rental books plus the online course | $1,135
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,560
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-2f-residential-wiring/nevada-residential-wiring-contractor-c-2f-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-2f-residential-wiring/the-1-package-all-inclusive-nevada-residential-wiring-contractor-c-2f-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,560
 
 ## How does the Residential Wiring Contractor (C-2F) exam work?
 

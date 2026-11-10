@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Landscape Contracting (C-10) Exam Book Package](https://passyournevadacontractorexam.com/c-10-landscape/book-package/)
+[Nevada Landscape Contracting (C-10) Exam Book Package](https://passyournevadacontractorexam.com/c-10-landscape/nevada-landscape-contracting-c-10-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $445 (was $545) Save 18%
-[Buy now](https://1examprep.com/cart/45814529785913:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-10-landscape/book-package/)
+[Buy now](https://1examprep.com/cart/45814529785913:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-10-landscape/nevada-landscape-contracting-c-10-exam-book-package/)
 
 ## How do the Landscape Contractor (C-10) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-10-landscape/book-package/) | the reference books, new and unmarked | $445
+[Book Package](https://passyournevadacontractorexam.com/c-10-landscape/nevada-landscape-contracting-c-10-exam-book-package/) | the reference books, new and unmarked | $445
 
 ## How does the Landscape Contractor (C-10) exam work?
 

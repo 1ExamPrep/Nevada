@@ -281,8 +281,8 @@ BOOK_SHORT = {g: _BK for g in ("building", "electrical", "mechanical", "finish",
 BOOK_SHORT.update({"business": "Open book, Nevada manual only", "electricians": "Open book, NEC", "plumbing": "Open book in Reno, 2024 UPC", "codes": "Open book, most categories"})
 # the line across the top of every page in designs that show it
 PROMO = "Every Nevada contractor takes the Business and Law (CMS) exam: open book, 60 questions"
-# product pages pictured in the home page collage (license/package paths)
-COLLAGE = ["b-2-residential-and-small-commercial/highlighted-tabbed/", "business-and-law-cms/highlighted-tabbed/", "journeyman-electrician/ultimate-combo-2026/", "c-2-electrical/exam-room-books/"]
+# products pictured in the home page collage: (license, package type); the newest code year wins
+COLLAGE = [("b-2-residential-and-small-commercial", "highlighted-tabbed"), ("business-and-law-cms", "highlighted-tabbed"), ("journeyman-electrician", "ultimate-combo"), ("c-2-electrical", "exam-room-books")]  # (license, package type)
 
 # the words people use for each license, for the exam advisor (Max) if it is switched on
 MAX_ALIASES = {

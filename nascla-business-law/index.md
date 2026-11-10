@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions (any state)
-[NASCLA Contractors Guide to Business, Law and Project Management Basic Edition - Online Practice Questions](https://passyournevadacontractorexam.com/nascla-business-law/online-practice-exams/)
+[NASCLA Contractors Guide to Business, Law and Project Management Basic Edition - Online Practice Questions](https://passyournevadacontractorexam.com/nascla-business-law/nascla-contractors-guide-to-business-law-and-project-management-basic-edition-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $99) Save 19%
-[Buy now](https://1examprep.com/cart/18797394198585:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/nascla-business-law/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/18797394198585:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/nascla-business-law/nascla-contractors-guide-to-business-law-and-project-management-basic-edition-online-practice-questions/)
 
 ## How do the NASCLA Business, Law and Project Management options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/nascla-business-law/online-practice-exams/) (any state) | timed practice questions online | $79.99
+[Online Practice Questions](https://passyournevadacontractorexam.com/nascla-business-law/nascla-contractors-guide-to-business-law-and-project-management-basic-edition-online-practice-questions/) (any state) | timed practice questions online | $79.99
 
 ## How does the NASCLA Business, Law and Project Management exam work?
 

@@ -52,157 +52,157 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Exam Prep Course
-[Nevada Residential Electrician (ICC - R18) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/residential-electrician/online-course-r18/)
+[Nevada Residential Electrician (ICC - R18) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $495
-[Buy now](https://1examprep.com/cart/46309796413497:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/online-course-r18/)
+[Buy now](https://1examprep.com/cart/46309796413497:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-online-exam-prep/)
 
 Online Exam Prep Course
-[Reno Nevada Residential Electrician (ICC - G18-N) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/residential-electrician/online-course-g18-n/)
+[Reno Nevada Residential Electrician (ICC - G18-N) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $495
-[Buy now](https://1examprep.com/cart/46348907806777:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/online-course-g18-n/)
+[Buy now](https://1examprep.com/cart/46348907806777:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-online-exam-prep/)
 
 ## Residential Electrician (ICC G18) options: books for the exam room
 
 6 products of the 15 Residential Electrician (ICC G18) options, from $225.
 
 Book Package
-[Reno Nevada Residential Electrician (ICC - G18-N) Exam Book Package](https://passyournevadacontractorexam.com/residential-electrician/book-package-g18-n/)
+[Reno Nevada Residential Electrician (ICC - G18-N) Exam Book Package](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $225 (was $325) Save 31%  to $425
-[Buy now](https://1examprep.com/cart/46390389637177:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/book-package-g18-n/)
+[Buy now](https://1examprep.com/cart/46390389637177:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-book-package/)
 
 Book Package
-[Reno Nevada Residential Electrician (ICC - T18-N) Exam Book Package](https://passyournevadacontractorexam.com/residential-electrician/book-package-t18-n/)
+[Reno Nevada Residential Electrician (ICC - T18-N) Exam Book Package](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $225 (was $325) Save 31%  to $425
-[Buy now](https://1examprep.com/cart/46390398353465:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/book-package-t18-n/)
+[Buy now](https://1examprep.com/cart/46390398353465:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-exam-book-package/)
 
 Book Package
-[Nevada Residential Electrician (ICC - R18) Exam Book Package](https://passyournevadacontractorexam.com/residential-electrician/book-package-r18/)
+[Nevada Residential Electrician (ICC - R18) Exam Book Package](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $545 (was $645) Save 16%  to $795
-[Buy now](https://1examprep.com/cart/46390446358585:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/book-package-r18/)
+[Buy now](https://1examprep.com/cart/46390446358585:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Reno Nevada Residential Electrician (ICC - G18-N) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-g18-n/)
+[Reno Nevada Residential Electrician (ICC - G18-N) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $425 (was $625) Save 32%  to $720
-[Buy now](https://1examprep.com/cart/46390394060857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-g18-n/)
+[Buy now](https://1examprep.com/cart/46390394060857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Books
-[Reno Nevada Residential Electrician (ICC - T18-N) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-t18-n/)
+[Reno Nevada Residential Electrician (ICC - T18-N) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $425 (was $625) Save 32%
-[Buy now](https://1examprep.com/cart/45958555074617:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-t18-n/)
+[Buy now](https://1examprep.com/cart/45958555074617:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Residential Electrician (ICC - R18) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-r18/)
+[Nevada Residential Electrician (ICC - R18) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $795 (was $995) Save 20%  to $1,090
-[Buy now](https://1examprep.com/cart/46390447308857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-r18/)
+[Buy now](https://1examprep.com/cart/46390447308857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-highlighted-and-tabbed-book-package/)
 
 ## Residential Electrician (ICC G18) options: live training and rentals
 
 6 products of the 15 Residential Electrician (ICC G18) options, from $495.
 
 Live Virtual Training
-[Reno Nevada Residential Electrician (ICC - T18-N) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/residential-electrician/live-training-t18-n/)
+[Reno Nevada Residential Electrician (ICC - T18-N) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $495 (was $695) Save 29%
-[Buy now](https://1examprep.com/cart/46275893690425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/live-training-t18-n/)
+[Buy now](https://1examprep.com/cart/46275893690425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-exam-prep-live-virtual-plus-self-study-training/)
 
 Live Virtual Training
-[Nevada Residential Electrician (ICC - R18) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/residential-electrician/live-training-r18/)
+[Nevada Residential Electrician (ICC - R18) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46275875471417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/live-training-r18/)
+[Buy now](https://1examprep.com/cart/46275875471417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-prep-live-virtual-plus-self-study-training/)
 
 Live Virtual Training
-[Reno Nevada Residential Electrician (ICC - G18-N) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/residential-electrician/live-training-g18-n/)
+[Reno Nevada Residential Electrician (ICC - G18-N) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46275737157689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/live-training-g18-n/)
+[Buy now](https://1examprep.com/cart/46275737157689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Reno Nevada Residential Electrician (ICC - G18-N) Books & Courses Rental Package](https://passyournevadacontractorexam.com/residential-electrician/rental-package-g18-n/)
+[Reno Nevada Residential Electrician (ICC - G18-N) Books & Courses Rental Package](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $720 (was $1,020) Save 29%  to $1,370
-[Buy now](https://1examprep.com/cart/46348915933241:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/rental-package-g18-n/)
+[Buy now](https://1examprep.com/cart/46348915933241:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-books-and-courses-rental-package/)
 
 Books and Courses Rental
-[Reno Nevada Residential Electrician (ICC - T18-N)- Books & Courses Rental Package](https://passyournevadacontractorexam.com/residential-electrician/rental-package-t18-n/)
+[Reno Nevada Residential Electrician (ICC - T18-N)- Books & Courses Rental Package](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $720 (was $1,020) Save 29%  to $1,170
-[Buy now](https://1examprep.com/cart/46395326529593:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/rental-package-t18-n/)
+[Buy now](https://1examprep.com/cart/46395326529593:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-books-and-courses-rental-package/)
 
 Books and Courses Rental
-[Nevada Residential Electrician (ICC - R18) Books & Courses Rental Package](https://passyournevadacontractorexam.com/residential-electrician/rental-package-r18/)
+[Nevada Residential Electrician (ICC - R18) Books & Courses Rental Package](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,090 (was $1,390) Save 22%  to $1,740
-[Buy now](https://1examprep.com/cart/46309796479033:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/rental-package-r18/)
+[Buy now](https://1examprep.com/cart/46309796479033:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-books-and-courses-rental-package/)
 
 ## Residential Electrician (ICC G18) option: study guides and electrician combos
 
 1 product of the 15 Residential Electrician (ICC G18) options, from $335.
 
 Exam Prep Package (any state)
-[ICC G18 National Standard Residential Electrician Exam Prep Package](https://passyournevadacontractorexam.com/residential-electrician/exam-prep-package-any-state/)
+[ICC G18 National Standard Residential Electrician Exam Prep Package](https://passyournevadacontractorexam.com/residential-electrician/icc-g18-national-standard-residential-electrician-exam-prep-package/)
 
 An exam prep package.
 
 $335 (was $375) Save 11%
-[Buy now](https://1examprep.com/cart/31670546792505:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/exam-prep-package-any-state/)
+[Buy now](https://1examprep.com/cart/31670546792505:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/residential-electrician/icc-g18-national-standard-residential-electrician-exam-prep-package/)
 
 ## How do the Residential Electrician (ICC G18) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | Price
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/residential-electrician/online-course-r18/) | $295
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/residential-electrician/online-course-g18-n/) | $295
-[Book Package](https://passyournevadacontractorexam.com/residential-electrician/book-package-g18-n/) | $225
-[Book Package](https://passyournevadacontractorexam.com/residential-electrician/book-package-t18-n/) | $225
-[Book Package](https://passyournevadacontractorexam.com/residential-electrician/book-package-r18/) | $545
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-g18-n/) | $425
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-t18-n/) | $425
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/residential-electrician/highlighted-tabbed-r18/) | $795
-[Live Virtual Training](https://passyournevadacontractorexam.com/residential-electrician/live-training-t18-n/) | $495
-[Live Virtual Training](https://passyournevadacontractorexam.com/residential-electrician/live-training-r18/) | $595
-[Live Virtual Training](https://passyournevadacontractorexam.com/residential-electrician/live-training-g18-n/) | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/residential-electrician/rental-package-g18-n/) | $720
-[Books and Courses Rental](https://passyournevadacontractorexam.com/residential-electrician/rental-package-t18-n/) | $720
-[Books and Courses Rental](https://passyournevadacontractorexam.com/residential-electrician/rental-package-r18/) | $1,090
-[Exam Prep Package](https://passyournevadacontractorexam.com/residential-electrician/exam-prep-package-any-state/) (any state) | $335
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-online-exam-prep/) | $295
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-online-exam-prep/) | $295
+[Book Package](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-book-package/) | $225
+[Book Package](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-exam-book-package/) | $225
+[Book Package](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-book-package/) | $545
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-highlighted-and-tabbed-book-package/) | $425
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-highlighted-and-tabbed-book-package/) | $425
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-highlighted-and-tabbed-book-package/) | $795
+[Live Virtual Training](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-exam-prep-live-virtual-plus-self-study-training/) | $495
+[Live Virtual Training](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-exam-prep-live-virtual-plus-self-study-training/) | $595
+[Live Virtual Training](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-exam-prep-live-virtual-plus-self-study-training/) | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-g18-n-books-and-courses-rental-package/) | $720
+[Books and Courses Rental](https://passyournevadacontractorexam.com/residential-electrician/reno-nevada-residential-electrician-icc-t18-n-books-and-courses-rental-package/) | $720
+[Books and Courses Rental](https://passyournevadacontractorexam.com/residential-electrician/nevada-residential-electrician-icc-r18-books-and-courses-rental-package/) | $1,090
+[Exam Prep Package](https://passyournevadacontractorexam.com/residential-electrician/icc-g18-national-standard-residential-electrician-exam-prep-package/) (any state) | $335
 
 ## How does the Residential Electrician (ICC G18) exam work?
 

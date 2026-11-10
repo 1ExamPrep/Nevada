@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Sewers, Drains, And Pipes Contractor (A-15) Exam Book Package](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/book-package/)
+[Nevada Sewers, Drains, And Pipes Contractor (A-15) Exam Book Package](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/nevada-sewers-drains-and-pipes-contractor-a-15-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $245 (was $345) Save 29%
-[Buy now](https://1examprep.com/cart/45739931205689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/book-package/)
+[Buy now](https://1examprep.com/cart/45739931205689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/nevada-sewers-drains-and-pipes-contractor-a-15-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Sewers, Drains, And Pipes Contractor (A-15) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/exam-room-books/)
+[Nevada Sewers, Drains, And Pipes Contractor (A-15) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/nevada-sewers-drains-and-pipes-contractor-a-15-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $15 (was $115) Save 87%
-[Buy now](https://1examprep.com/cart/45815175512121:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815175512121:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/nevada-sewers-drains-and-pipes-contractor-a-15-books-allowed-into-exam-package/)
 
 ## How do the Sewers, Drains and Pipes Contractor (A-15) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/book-package/) | the reference books, new and unmarked | $245
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/exam-room-books/) | the references PSI allows in the exam room | $15
+[Book Package](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/nevada-sewers-drains-and-pipes-contractor-a-15-exam-book-package/) | the reference books, new and unmarked | $245
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/nevada-sewers-drains-and-pipes-contractor-a-15-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $15
 
 ## How does the Sewers, Drains and Pipes Contractor (A-15) exam work?
 

@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Exam Prep Course
-[Clark County Nevada Structural Welding Codes Module (ICC - SI - S2CY) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/clark-county-structural-welding/online-course/)
+[Clark County Nevada Structural Welding Codes Module (ICC - SI - S2CY) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/clark-county-structural-welding/clark-county-nevada-structural-welding-codes-module-icc-si-s2cy-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%
-[Buy now](https://1examprep.com/cart/45958563201081:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/clark-county-structural-welding/online-course/)
+[Buy now](https://1examprep.com/cart/45958563201081:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/clark-county-structural-welding/clark-county-nevada-structural-welding-codes-module-icc-si-s2cy-exam-online-exam-prep/)
 
 Book Package
-[Clark County Nevada Structural Welding Codes Module (ICC - SI - S2CY) Exam Book Package](https://passyournevadacontractorexam.com/clark-county-structural-welding/book-package/)
+[Clark County Nevada Structural Welding Codes Module (ICC - SI - S2CY) Exam Book Package](https://passyournevadacontractorexam.com/clark-county-structural-welding/clark-county-nevada-structural-welding-codes-module-icc-si-s2cy-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $2,745 (was $2,845) Save 4%
-[Buy now](https://1examprep.com/cart/45958235750457:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/clark-county-structural-welding/book-package/)
+[Buy now](https://1examprep.com/cart/45958235750457:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/clark-county-structural-welding/clark-county-nevada-structural-welding-codes-module-icc-si-s2cy-exam-book-package/)
 
 ## How do the Clark County Structural Welding Special Inspector (S2CY) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/clark-county-structural-welding/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/clark-county-structural-welding/book-package/) | the reference books, new and unmarked | $2,745
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/clark-county-structural-welding/clark-county-nevada-structural-welding-codes-module-icc-si-s2cy-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/clark-county-structural-welding/clark-county-nevada-structural-welding-codes-module-icc-si-s2cy-exam-book-package/) | the reference books, new and unmarked | $2,745
 
 ## How does the Clark County Structural Welding Special Inspector (S2CY) exam work?
 

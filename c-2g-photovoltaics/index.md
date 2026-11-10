@@ -48,121 +48,121 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Photovoltaics Contractor (C-2G) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-2g-photovoltaics/online-practice-exams/)
+[Nevada Photovoltaics Contractor (C-2G) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235703476281:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235703476281:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Photovoltaics Contractor (C-2G) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-2g-photovoltaics/online-course/)
+[Nevada Photovoltaics Contractor (C-2G) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%
-[Buy now](https://1examprep.com/cart/45851487895609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/online-course/)
+[Buy now](https://1examprep.com/cart/45851487895609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-online-exam-prep/)
 
 ## Photovoltaics Contractor (C-2G) options: books for the exam room
 
 4 products of the 11 Photovoltaics Contractor (C-2G) options, from $199.
 
 Book Package
-[Nevada Photovoltaics Contractor (C-2G) Exam Book Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/book-package/)
+[Nevada Photovoltaics Contractor (C-2G) Exam Book Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $445 (was $545) Save 18%  to $745
-[Buy now](https://1examprep.com/cart/46386327060537:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/book-package/)
+[Buy now](https://1examprep.com/cart/46386327060537:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Photovoltaics Contractor (C-2G) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-books/)
+[Nevada Photovoltaics Contractor (C-2G) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
-[Buy now](https://1examprep.com/cart/46386373165113:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46386373165113:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Photovoltaics Contractor (C-2G) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/highlighted-tabbed/)
+[Nevada Photovoltaics Contractor (C-2G) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $745 (was $945) Save 21%  to $1,040
-[Buy now](https://1examprep.com/cart/46386389516345:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46386389516345:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Photovoltaics Contractor (C-2G) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-books-highlighted/)
+[Nevada Photovoltaics Contractor (C-2G) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%  to $694
-[Buy now](https://1examprep.com/cart/46386424578105:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46386424578105:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Photovoltaics Contractor (C-2G) options: live training and rentals
 
 4 products of the 11 Photovoltaics Contractor (C-2G) options, from $989.
 
 Books and Courses Rental
-[Nevada Photovoltaics Contractor (C-2G)- Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/rental-package/)
+[Nevada Photovoltaics Contractor (C-2G)- Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,335 (was $1,635) Save 18%  to $1,785
-[Buy now](https://1examprep.com/cart/46386467274809:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/rental-package/)
+[Buy now](https://1examprep.com/cart/46386467274809:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Photovoltaics Contractor (C-2G) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-rental/)
+[Nevada Photovoltaics Contractor (C-2G) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $989 (was $1,485) Save 33%  to $1,439
-[Buy now](https://1examprep.com/cart/46391208837177:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46391208837177:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Photovoltaics Contractor (C-2G) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-2g-photovoltaics/ultimate-rental/)
+[Nevada Photovoltaics Contractor (C-2G) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,760 (was $2,160) Save 19%
-[Buy now](https://1examprep.com/cart/45852127494201:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852127494201:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Photovoltaics Contractor (C-2G) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/ultimate-exam-room/)
+[Nevada Photovoltaics Contractor (C-2G) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,414 (was $1,814) Save 22%
-[Buy now](https://1examprep.com/cart/45877392113721:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45877392113721:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Photovoltaics Contractor (C-2G) option: all-inclusive and licensing services
 
 1 product of the 11 Photovoltaics Contractor (C-2G) options, from $2,760.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Photovoltaics Contractor (C-2G) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-2g-photovoltaics/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Photovoltaics Contractor (C-2G) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-2g-photovoltaics/the-1-package-all-inclusive-nevada-photovoltaics-contractor-c-2g-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,760 (was $3,260) Save 15%
-[Buy now](https://1examprep.com/cart/45858830581817:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/the-1-package/)
+[Buy now](https://1examprep.com/cart/45858830581817:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2g-photovoltaics/the-1-package-all-inclusive-nevada-photovoltaics-contractor-c-2g-exam-licensing-and-business-setup-solution/)
 
 ## How do the Photovoltaics Contractor (C-2G) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-2g-photovoltaics/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2g-photovoltaics/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/book-package/) | the reference books, new and unmarked | $445
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-2g-photovoltaics/highlighted-tabbed/) | the reference books already highlighted and tabbed | $745
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-2g-photovoltaics/rental-package/) | rental books plus the online course | $1,335
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-2g-photovoltaics/exam-room-rental/) | rental exam-room books plus the online course | $989
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/ultimate-rental/) | tabbed rental books, course and live training | $1,760
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-2g-photovoltaics/ultimate-exam-room/) | exam-room books, course and application help | $1,414
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-2g-photovoltaics/the-1-package/) | exam prep, books, paperwork and business setup | $2,760
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-exam-book-package/) | the reference books, new and unmarked | $445
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $745
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-and-courses-rental-package/) | rental books plus the online course | $1,335
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,760
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-2g-photovoltaics/nevada-photovoltaics-contractor-c-2g-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-2g-photovoltaics/the-1-package-all-inclusive-nevada-photovoltaics-contractor-c-2g-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,760
 
 ## How does the Photovoltaics Contractor (C-2G) exam work?
 

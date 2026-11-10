@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Sheet Metal Contractor (C-13) Exam Book Package](https://passyournevadacontractorexam.com/c-13-sheet-metal/book-package/)
+[Nevada Sheet Metal Contractor (C-13) Exam Book Package](https://passyournevadacontractorexam.com/c-13-sheet-metal/nevada-sheet-metal-contractor-c-13-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,245 (was $1,345) Save 7%
-[Buy now](https://1examprep.com/cart/45740281954361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-13-sheet-metal/book-package/)
+[Buy now](https://1examprep.com/cart/45740281954361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-13-sheet-metal/nevada-sheet-metal-contractor-c-13-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Sheet Metal Contractor (C-13) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-13-sheet-metal/exam-room-books/)
+[Nevada Sheet Metal Contractor (C-13) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-13-sheet-metal/nevada-sheet-metal-contractor-c-13-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $495 (was $595) Save 17%
-[Buy now](https://1examprep.com/cart/45815314251833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-13-sheet-metal/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815314251833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-13-sheet-metal/nevada-sheet-metal-contractor-c-13-books-allowed-into-exam-package/)
 
 ## How do the Sheet Metal Contractor (C-13) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-13-sheet-metal/book-package/) | the reference books, new and unmarked | $1,245
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-13-sheet-metal/exam-room-books/) | the references PSI allows in the exam room | $495
+[Book Package](https://passyournevadacontractorexam.com/c-13-sheet-metal/nevada-sheet-metal-contractor-c-13-exam-book-package/) | the reference books, new and unmarked | $1,245
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-13-sheet-metal/nevada-sheet-metal-contractor-c-13-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $495
 
 ## How does the Sheet Metal Contractor (C-13) exam work?
 

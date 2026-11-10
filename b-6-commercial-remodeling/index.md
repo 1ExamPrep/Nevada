@@ -48,139 +48,139 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Commercial Remodeling Contractor (B-6) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-practice-exams/)
+[Nevada Commercial Remodeling Contractor (B-6) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235694039097:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235694039097:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Commercial Remodeling Contractor (B-6) - Online Exam Prep Course](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-course/)
+[Nevada Commercial Remodeling Contractor (B-6) - Online Exam Prep Course](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-online-exam-prep-course/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%
-[Buy now](https://1examprep.com/cart/44464294035513:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-course/)
+[Buy now](https://1examprep.com/cart/44464294035513:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-online-exam-prep-course/)
 
 Online Exam Prep Course
-[Nevada Commercial Remodeling Contractor (B-6) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-course-2/)
+[Nevada Commercial Remodeling Contractor (B-6) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266840285241:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-course-2/)
+[Buy now](https://1examprep.com/cart/46266840285241:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-online-exam-prep/)
 
 ## Commercial Remodeling Contractor (B-6) options: books for the exam room
 
 4 products of the 13 Commercial Remodeling Contractor (B-6) options, from $695.
 
 Book Package
-[Nevada Commercial Remodeling Contractor (B-6) Exam Book Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/book-package/)
+[Nevada Commercial Remodeling Contractor (B-6) Exam Book Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,645 (was $1,745) Save 6%  to $2,945
-[Buy now](https://1examprep.com/cart/46370774417465:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/book-package/)
+[Buy now](https://1examprep.com/cart/46370774417465:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Commercial Remodeling Contractor (B-6) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-books/)
+[Nevada Commercial Remodeling Contractor (B-6) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $695 (was $795) Save 13%  to $995
-[Buy now](https://1examprep.com/cart/46370815508537:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46370815508537:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Commercial Remodeling Contractor (B-6) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/highlighted-tabbed/)
+[Nevada Commercial Remodeling Contractor (B-6) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $2,345 (was $2,545) Save 8%  to $2,640
-[Buy now](https://1examprep.com/cart/46370866528313:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46370866528313:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Commercial Remodeling Contractor (B-6) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-books-highlighted/)
+[Nevada Commercial Remodeling Contractor (B-6) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $995 (was $1,195) Save 17%  to $1,290
-[Buy now](https://1examprep.com/cart/46370875015225:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46370875015225:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Commercial Remodeling Contractor (B-6) options: live training and rentals
 
 5 products of the 13 Commercial Remodeling Contractor (B-6) options, from $595.
 
 Live Virtual Training
-[Nevada Commercial Remodeling Contractor (B-6) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/live-training/)
+[Nevada Commercial Remodeling Contractor (B-6) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46253150634041:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/live-training/)
+[Buy now](https://1examprep.com/cart/46253150634041:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Commercial Remodeling Contractor (B-6) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/rental-package/)
+[Nevada Commercial Remodeling Contractor (B-6) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $2,935 (was $3,235) Save 9%  to $3,685
-[Buy now](https://1examprep.com/cart/46266840449081:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/rental-package/)
+[Buy now](https://1examprep.com/cart/46266840449081:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Commercial Remodeling Contractor (B-6) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-rental/)
+[Nevada Commercial Remodeling Contractor (B-6) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $1,390 (was $1,690) Save 18%  to $2,140
-[Buy now](https://1examprep.com/cart/46266840580153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46266840580153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Commercial Remodeling Contractor (B-6) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/ultimate-rental/)
+[Nevada Commercial Remodeling Contractor (B-6) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $3,360 (was $3,760) Save 11%
-[Buy now](https://1examprep.com/cart/45852103508025:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852103508025:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Commercial Remodeling Contractor (B-6) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/ultimate-exam-room/)
+[Nevada Commercial Remodeling Contractor (B-6) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,815 (was $2,215) Save 18%
-[Buy now](https://1examprep.com/cart/45858836152377:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45858836152377:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Commercial Remodeling Contractor (B-6) option: all-inclusive and licensing services
 
 1 product of the 13 Commercial Remodeling Contractor (B-6) options, from $4,360.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Commercial Remodeling Contractor (B-6) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Commercial Remodeling Contractor (B-6) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/the-1-package-all-inclusive-nevada-commercial-remodeling-contractor-b-6-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $4,360 (was $4,860) Save 10%
-[Buy now](https://1examprep.com/cart/45858330312761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/the-1-package/)
+[Buy now](https://1examprep.com/cart/45858330312761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/the-1-package-all-inclusive-nevada-commercial-remodeling-contractor-b-6-exam-licensing-and-business-setup-solution/)
 
 ## How do the Commercial Remodeling Contractor (B-6) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-course/) | an online course with practice exams | $295
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/online-course-2/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/book-package/) | the reference books, new and unmarked | $1,645
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-books/) | the references PSI allows in the exam room | $695
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/highlighted-tabbed/) | the reference books already highlighted and tabbed | $2,345
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $995
-[Live Virtual Training](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/rental-package/) | rental books plus the online course | $2,935
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/exam-room-rental/) | rental exam-room books plus the online course | $1,390
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/ultimate-rental/) | tabbed rental books, course and live training | $3,360
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/ultimate-exam-room/) | exam-room books, course and application help | $1,815
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/the-1-package/) | exam prep, books, paperwork and business setup | $4,360
+[Online Practice Questions](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-online-exam-prep-course/) | an online course with practice exams | $295
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-book-package/) | the reference books, new and unmarked | $1,645
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $695
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $2,345
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $995
+[Live Virtual Training](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-and-courses-rental-package/) | rental books plus the online course | $2,935
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $1,390
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $3,360
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,815
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/the-1-package-all-inclusive-nevada-commercial-remodeling-contractor-b-6-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $4,360
 
 ## How does the Commercial Remodeling Contractor (B-6) exam work?
 

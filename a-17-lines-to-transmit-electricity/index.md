@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Lines to Transmit Electricity Contractor (A-17) Exam Book Package](https://passyournevadacontractorexam.com/a-17-lines-to-transmit-electricity/book-package/)
+[Nevada Lines to Transmit Electricity Contractor (A-17) Exam Book Package](https://passyournevadacontractorexam.com/a-17-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-contractor-a-17-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $145 (was $245) Save 41%
-[Buy now](https://1examprep.com/cart/45814508191801:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-17-lines-to-transmit-electricity/book-package/)
+[Buy now](https://1examprep.com/cart/45814508191801:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-17-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-contractor-a-17-exam-book-package/)
 
 ## How do the Lines to Transmit Electricity Contractor (A-17) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-17-lines-to-transmit-electricity/book-package/) | the reference books, new and unmarked | $145
+[Book Package](https://passyournevadacontractorexam.com/a-17-lines-to-transmit-electricity/nevada-lines-to-transmit-electricity-contractor-a-17-exam-book-package/) | the reference books, new and unmarked | $145
 
 ## How does the Lines to Transmit Electricity Contractor (A-17) exam work?
 

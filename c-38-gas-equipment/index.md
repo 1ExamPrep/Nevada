@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Gas Equipment Contractor (C-38) Exam Book Package](https://passyournevadacontractorexam.com/c-38-gas-equipment/book-package/)
+[Nevada Gas Equipment Contractor (C-38) Exam Book Package](https://passyournevadacontractorexam.com/c-38-gas-equipment/nevada-gas-equipment-contractor-c-38-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $745 (was $845) Save 12%
-[Buy now](https://1examprep.com/cart/45740609175609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-38-gas-equipment/book-package/)
+[Buy now](https://1examprep.com/cart/45740609175609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-38-gas-equipment/nevada-gas-equipment-contractor-c-38-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Gas Equipment Contractor (C-38) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-38-gas-equipment/exam-room-books/)
+[Nevada Gas Equipment Contractor (C-38) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-38-gas-equipment/nevada-gas-equipment-contractor-c-38-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $495 (was $595) Save 17%
-[Buy now](https://1examprep.com/cart/45815333945401:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-38-gas-equipment/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815333945401:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-38-gas-equipment/nevada-gas-equipment-contractor-c-38-books-allowed-into-exam-package/)
 
 ## How do the Gas Equipment Contractor (C-38) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-38-gas-equipment/book-package/) | the reference books, new and unmarked | $745
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-38-gas-equipment/exam-room-books/) | the references PSI allows in the exam room | $495
+[Book Package](https://passyournevadacontractorexam.com/c-38-gas-equipment/nevada-gas-equipment-contractor-c-38-exam-book-package/) | the reference books, new and unmarked | $745
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-38-gas-equipment/nevada-gas-equipment-contractor-c-38-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $495
 
 ## How does the Gas Equipment Contractor (C-38) exam work?
 

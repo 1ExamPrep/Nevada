@@ -48,91 +48,91 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Lathing And Plastering Contractor (C-17) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-practice-exams/)
+[Nevada Lathing And Plastering Contractor (C-17) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235739553849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235739553849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada C-17 Lathing and Plastering Contractor - Online Exam Prep Course](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-course/)
+[Nevada C-17 Lathing and Plastering Contractor - Online Exam Prep Course](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-c-17-lathing-and-plastering-contractor-online-exam-prep-course/)
 
 An online course with practice exams.
 
 $195 (was $220) Save 11%
-[Buy now](https://1examprep.com/cart/31380432650297:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-course/)
+[Buy now](https://1examprep.com/cart/31380432650297:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-c-17-lathing-and-plastering-contractor-online-exam-prep-course/)
 
 Online Exam Prep Course
-[Nevada Lathing and Plastering Contractor (C-17) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-course-2/)
+[Nevada Lathing and Plastering Contractor (C-17) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266857127993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-course-2/)
+[Buy now](https://1examprep.com/cart/46266857127993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-online-exam-prep/)
 
 Book Package
-[Nevada Lathing and Plastering Contractor (C-17) Exam Book Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/book-package/)
+[Nevada Lathing and Plastering Contractor (C-17) Exam Book Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $295 (was $395) Save 25%  to $495
-[Buy now](https://1examprep.com/cart/46375152484409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/book-package/)
+[Buy now](https://1examprep.com/cart/46375152484409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Lathing and Plastering Contractor (C-17) Exam Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/highlighted-tabbed/)
+[Nevada Lathing and Plastering Contractor (C-17) Exam Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $495 (was $695) Save 29%  to $790
-[Buy now](https://1examprep.com/cart/46375175520313:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46375175520313:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-highlighted-and-tabbed-book-package/)
 
 Live Virtual Training
-[Nevada Lathing and Plastering Contractor (C-17) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/live-training/)
+[Nevada Lathing and Plastering Contractor (C-17) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46254442119225:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/live-training/)
+[Buy now](https://1examprep.com/cart/46254442119225:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Lathing and Plastering Contractor (C-17) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/rental-package/)
+[Nevada Lathing and Plastering Contractor (C-17) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,085 (was $1,385) Save 22%  to $1,835
-[Buy now](https://1examprep.com/cart/46266857291833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/rental-package/)
+[Buy now](https://1examprep.com/cart/46266857291833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-books-and-courses-rental-package/)
 
 Ultimate Rental Package
-[Nevada Lathing and Plastering Contractor (C-17) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/ultimate-rental/)
+[Nevada Lathing and Plastering Contractor (C-17) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,510 (was $1,910) Save 21%
-[Buy now](https://1examprep.com/cart/45852185854009:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852185854009:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-ultimate-exam-prep-rental/)
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Lathing and Plastering Contractor (C-17) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Lathing and Plastering Contractor (C-17) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/the-1-package-all-inclusive-nevada-lathing-and-plastering-contractor-c-17-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,510 (was $3,010) Save 17%
-[Buy now](https://1examprep.com/cart/45859507667001:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859507667001:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/the-1-package-all-inclusive-nevada-lathing-and-plastering-contractor-c-17-exam-licensing-and-business-setup-solution/)
 
 ## How do the Lathing and Plastering Contractor (C-17) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-course/) | an online course with practice exams | $195
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/online-course-2/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/book-package/) | the reference books, new and unmarked | $295
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/highlighted-tabbed/) | the reference books already highlighted and tabbed | $495
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/rental-package/) | rental books plus the online course | $1,085
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/ultimate-rental/) | tabbed rental books, course and live training | $1,510
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/the-1-package/) | exam prep, books, paperwork and business setup | $2,510
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-c-17-lathing-and-plastering-contractor-online-exam-prep-course/) | an online course with practice exams | $195
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-book-package/) | the reference books, new and unmarked | $295
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $495
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-books-and-courses-rental-package/) | rental books plus the online course | $1,085
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-lathing-and-plastering-contractor-c-17-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,510
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/the-1-package-all-inclusive-nevada-lathing-and-plastering-contractor-c-17-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,510
 
 ## How does the Lathing and Plastering Contractor (C-17) exam work?
 

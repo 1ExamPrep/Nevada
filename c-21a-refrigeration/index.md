@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Refrigeration Contractor (C-21A) Exam Book Package](https://passyournevadacontractorexam.com/c-21a-refrigeration/book-package/)
+[Nevada Refrigeration Contractor (C-21A) Exam Book Package](https://passyournevadacontractorexam.com/c-21a-refrigeration/nevada-refrigeration-contractor-c-21a-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $595 (was $695) Save 14%
-[Buy now](https://1examprep.com/cart/45740470173753:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21a-refrigeration/book-package/)
+[Buy now](https://1examprep.com/cart/45740470173753:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21a-refrigeration/nevada-refrigeration-contractor-c-21a-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Refrigeration Contractor (C-21A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21a-refrigeration/exam-room-books/)
+[Nevada Refrigeration Contractor (C-21A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21a-refrigeration/nevada-refrigeration-contractor-c-21a-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815322312761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21a-refrigeration/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815322312761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21a-refrigeration/nevada-refrigeration-contractor-c-21a-books-allowed-into-exam-package/)
 
 ## How do the Refrigeration Contractor (C-21A) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-21a-refrigeration/book-package/) | the reference books, new and unmarked | $595
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21a-refrigeration/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/c-21a-refrigeration/nevada-refrigeration-contractor-c-21a-exam-book-package/) | the reference books, new and unmarked | $595
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21a-refrigeration/nevada-refrigeration-contractor-c-21a-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Refrigeration Contractor (C-21A) exam work?
 

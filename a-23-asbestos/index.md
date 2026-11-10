@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Asbestos Contractor (A-23) Exam Book Package](https://passyournevadacontractorexam.com/a-23-asbestos/book-package/)
+[Nevada Asbestos Contractor (A-23) Exam Book Package](https://passyournevadacontractorexam.com/a-23-asbestos/nevada-asbestos-contractor-a-23-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $95 (was $195) Save 51%
-[Buy now](https://1examprep.com/cart/45814509895737:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-23-asbestos/book-package/)
+[Buy now](https://1examprep.com/cart/45814509895737:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-23-asbestos/nevada-asbestos-contractor-a-23-exam-book-package/)
 
 ## How do the Asbestos Contractor (A-23) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-23-asbestos/book-package/) | the reference books, new and unmarked | $95
+[Book Package](https://passyournevadacontractorexam.com/a-23-asbestos/nevada-asbestos-contractor-a-23-exam-book-package/) | the reference books, new and unmarked | $95
 
 ## How does the Asbestos Contractor (A-23) exam work?
 

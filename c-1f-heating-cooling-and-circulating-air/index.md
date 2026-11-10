@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Heating, Cooling, And Circulating Air Contractor (C-1F) Exam Book Package](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/book-package/)
+[Nevada Heating, Cooling, And Circulating Air Contractor (C-1F) Exam Book Package](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/nevada-heating-cooling-and-circulating-air-contractor-c-1f-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $595 (was $695) Save 14%
-[Buy now](https://1examprep.com/cart/45740051431481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/book-package/)
+[Buy now](https://1examprep.com/cart/45740051431481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/nevada-heating-cooling-and-circulating-air-contractor-c-1f-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Heating, Cooling, And Circulating Air Contractor (C-1F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/exam-room-books/)
+[Nevada Heating, Cooling, And Circulating Air Contractor (C-1F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/nevada-heating-cooling-and-circulating-air-contractor-c-1f-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815203659833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815203659833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/nevada-heating-cooling-and-circulating-air-contractor-c-1f-books-allowed-into-exam-package/)
 
 ## How do the Heating, Cooling and Circulating Air Contractor (C-1F) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/book-package/) | the reference books, new and unmarked | $595
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/nevada-heating-cooling-and-circulating-air-contractor-c-1f-exam-book-package/) | the reference books, new and unmarked | $595
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/nevada-heating-cooling-and-circulating-air-contractor-c-1f-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Heating, Cooling and Circulating Air Contractor (C-1F) exam work?
 

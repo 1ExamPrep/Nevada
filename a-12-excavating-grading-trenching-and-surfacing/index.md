@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Excavating, Grading, Trenching and Surfacing Contractor (A-12) Exam Book Package](https://passyournevadacontractorexam.com/a-12-excavating-grading-trenching-and-surfacing/book-package/)
+[Nevada Excavating, Grading, Trenching and Surfacing Contractor (A-12) Exam Book Package](https://passyournevadacontractorexam.com/a-12-excavating-grading-trenching-and-surfacing/nevada-excavating-grading-trenching-and-surfacing-contractor-a-12-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,095 (was $1,195) Save 8%
-[Buy now](https://1examprep.com/cart/45814507831353:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-12-excavating-grading-trenching-and-surfacing/book-package/)
+[Buy now](https://1examprep.com/cart/45814507831353:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-12-excavating-grading-trenching-and-surfacing/nevada-excavating-grading-trenching-and-surfacing-contractor-a-12-exam-book-package/)
 
 ## How do the Excavating, Grading, Trenching and Surfacing Contractor (A-12) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-12-excavating-grading-trenching-and-surfacing/book-package/) | the reference books, new and unmarked | $1,095
+[Book Package](https://passyournevadacontractorexam.com/a-12-excavating-grading-trenching-and-surfacing/nevada-excavating-grading-trenching-and-surfacing-contractor-a-12-exam-book-package/) | the reference books, new and unmarked | $1,095
 
 ## How does the Excavating, Grading, Trenching and Surfacing Contractor (A-12) exam work?
 

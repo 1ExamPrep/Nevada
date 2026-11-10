@@ -48,130 +48,130 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Masonry Contractor (C-18) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-18-masonry/online-practice-exams/)
+[Nevada Masonry Contractor (C-18) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235751940153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235751940153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Masonry Contractor (C-18) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-18-masonry/online-course/)
+[Nevada Masonry Contractor (C-18) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266859126841:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/online-course/)
+[Buy now](https://1examprep.com/cart/46266859126841:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-online-exam-prep/)
 
 ## Masonry Contractor (C-18) options: books for the exam room
 
 4 products of the 12 Masonry Contractor (C-18) options, from $395.
 
 Book Package
-[Nevada Masonry Contractor (C-18) Exam Book Package](https://passyournevadacontractorexam.com/c-18-masonry/book-package/)
+[Nevada Masonry Contractor (C-18) Exam Book Package](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $595 (was $695) Save 14%  to $895
-[Buy now](https://1examprep.com/cart/46378725310521:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/book-package/)
+[Buy now](https://1examprep.com/cart/46378725310521:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Masonry Contractor (C-18) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-books/)
+[Nevada Masonry Contractor (C-18) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $395 (was $495) Save 20%  to $595
-[Buy now](https://1examprep.com/cart/46378733404217:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46378733404217:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Masonry Contractor (C-18) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-18-masonry/highlighted-tabbed/)
+[Nevada Masonry Contractor (C-18) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $895 (was $1,095) Save 18%  to $1,190
-[Buy now](https://1examprep.com/cart/46378834427961:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46378834427961:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Masonry Contractor (C-18) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-books-highlighted/)
+[Nevada Masonry Contractor (C-18) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $595 (was $795) Save 25%  to $890
-[Buy now](https://1examprep.com/cart/46378859855929:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46378859855929:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Masonry Contractor (C-18) options: live training and rentals
 
 5 products of the 12 Masonry Contractor (C-18) options, from $595.
 
 Live Virtual Training
-[Nevada Masonry Contractor (C-18) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-18-masonry/live-training/)
+[Nevada Masonry Contractor (C-18) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46254506934329:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/live-training/)
+[Buy now](https://1examprep.com/cart/46254506934329:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Masonry Contractor (C-18) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-18-masonry/rental-package/)
+[Nevada Masonry Contractor (C-18) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,485 (was $1,785) Save 17%  to $2,235
-[Buy now](https://1examprep.com/cart/46266860142649:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/rental-package/)
+[Buy now](https://1examprep.com/cart/46266860142649:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Masonry Contractor (C-18) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-rental/)
+[Nevada Masonry Contractor (C-18) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $1,185 (was $1,485) Save 20%  to $1,935
-[Buy now](https://1examprep.com/cart/46266861420601:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46266861420601:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Masonry Contractor (C-18) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-18-masonry/ultimate-rental/)
+[Nevada Masonry Contractor (C-18) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,910 (was $2,310) Save 17%
-[Buy now](https://1examprep.com/cart/45858240593977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45858240593977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Masonry Contractor (C-18) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-18-masonry/ultimate-exam-room/)
+[Nevada Masonry Contractor (C-18) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,610 (was $2,010) Save 20%
-[Buy now](https://1examprep.com/cart/45859506356281:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45859506356281:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Masonry Contractor (C-18) option: all-inclusive and licensing services
 
 1 product of the 12 Masonry Contractor (C-18) options, from $2,910.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Masonry Contractor (C-18) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-18-masonry/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Masonry Contractor (C-18) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-18-masonry/the-1-package-all-inclusive-nevada-masonry-contractor-c-18-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,910 (was $3,410) Save 15%
-[Buy now](https://1examprep.com/cart/45859613179961:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859613179961:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/the-1-package-all-inclusive-nevada-masonry-contractor-c-18-exam-licensing-and-business-setup-solution/)
 
 ## How do the Masonry Contractor (C-18) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-18-masonry/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-18-masonry/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-18-masonry/book-package/) | the reference books, new and unmarked | $595
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-books/) | the references PSI allows in the exam room | $395
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-18-masonry/highlighted-tabbed/) | the reference books already highlighted and tabbed | $895
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $595
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-18-masonry/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-18-masonry/rental-package/) | rental books plus the online course | $1,485
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-rental/) | rental exam-room books plus the online course | $1,185
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-18-masonry/ultimate-rental/) | tabbed rental books, course and live training | $1,910
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-18-masonry/ultimate-exam-room/) | exam-room books, course and application help | $1,610
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-18-masonry/the-1-package/) | exam prep, books, paperwork and business setup | $2,910
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-book-package/) | the reference books, new and unmarked | $595
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $395
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $895
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $595
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-and-courses-rental-package/) | rental books plus the online course | $1,485
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $1,185
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,910
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-18-masonry/nevada-masonry-contractor-c-18-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,610
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-18-masonry/the-1-package-all-inclusive-nevada-masonry-contractor-c-18-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,910
 
 ## How does the Masonry Contractor (C-18) exam work?
 

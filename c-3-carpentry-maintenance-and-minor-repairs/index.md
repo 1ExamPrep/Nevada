@@ -48,130 +48,130 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/online-practice-exams/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235707310137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235707310137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/online-course/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266842775609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/online-course/)
+[Buy now](https://1examprep.com/cart/46266842775609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-online-exam-prep/)
 
 ## Carpentry, Maintenance and Minor Repairs Contractor (C-3) options: books for the exam room
 
 4 products of the 12 Carpentry, Maintenance and Minor Repairs Contractor (C-3) options, from $199.
 
 Book Package
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam Book Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/book-package/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam Book Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $495 (was $545) Save 9%  to $795
-[Buy now](https://1examprep.com/cart/46368300007481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/book-package/)
+[Buy now](https://1examprep.com/cart/46368300007481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-books/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
-[Buy now](https://1examprep.com/cart/46368310034489:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46368310034489:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/highlighted-tabbed/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $795 (was $995) Save 20%  to $1,090
-[Buy now](https://1examprep.com/cart/46368317538361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46368317538361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-books-highlighted/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%  to $694
-[Buy now](https://1examprep.com/cart/46368324812857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46368324812857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Carpentry, Maintenance and Minor Repairs Contractor (C-3) options: live training and rentals
 
 5 products of the 12 Carpentry, Maintenance and Minor Repairs Contractor (C-3) options, from $595.
 
 Live Virtual Training
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/live-training/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46253103022137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/live-training/)
+[Buy now](https://1examprep.com/cart/46253103022137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/rental-package/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,385 (was $1,685) Save 18%  to $2,135
-[Buy now](https://1examprep.com/cart/46266843234361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/rental-package/)
+[Buy now](https://1examprep.com/cart/46266843234361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-rental/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $989 (was $1,289) Save 23%  to $1,739
-[Buy now](https://1examprep.com/cart/46266843430969:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46266843430969:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/ultimate-rental/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,810 (was $2,210) Save 18%
-[Buy now](https://1examprep.com/cart/45852129493049:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852129493049:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/ultimate-exam-room/)
+[Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,414 (was $1,814) Save 22%
-[Buy now](https://1examprep.com/cart/45877433172025:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45877433172025:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Carpentry, Maintenance and Minor Repairs Contractor (C-3) option: all-inclusive and licensing services
 
 1 product of the 12 Carpentry, Maintenance and Minor Repairs Contractor (C-3) options, from $2,810.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/the-1-package-all-inclusive-nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,810 (was $3,310) Save 15%
-[Buy now](https://1examprep.com/cart/45858834874425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/the-1-package/)
+[Buy now](https://1examprep.com/cart/45858834874425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/the-1-package-all-inclusive-nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-licensing-and-business-setup-solution/)
 
 ## How do the Carpentry, Maintenance and Minor Repairs Contractor (C-3) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/book-package/) | the reference books, new and unmarked | $495
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/highlighted-tabbed/) | the reference books already highlighted and tabbed | $795
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/rental-package/) | rental books plus the online course | $1,385
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-rental/) | rental exam-room books plus the online course | $989
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/ultimate-rental/) | tabbed rental books, course and live training | $1,810
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/ultimate-exam-room/) | exam-room books, course and application help | $1,414
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/the-1-package/) | exam prep, books, paperwork and business setup | $2,810
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-book-package/) | the reference books, new and unmarked | $495
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $795
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-and-courses-rental-package/) | rental books plus the online course | $1,385
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,810
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/the-1-package-all-inclusive-nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,810
 
 ## How does the Carpentry, Maintenance and Minor Repairs Contractor (C-3) exam work?
 

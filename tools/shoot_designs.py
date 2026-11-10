@@ -9,7 +9,7 @@ ROOT = os.path.dirname(os.path.dirname(os.path.abspath(__file__)))
 FONTS = sys.argv[1] if len(sys.argv) > 1 else None
 PH = sys.argv[2] if len(sys.argv) > 2 else None
 themes = json.load(open(os.path.join(ROOT, "shared", "themes", "themes.json")))
-pages = [("home", "/"), ("class", "/b-2-residential-and-small-commercial/"), ("product", "/b-2-residential-and-small-commercial/highlighted-tabbed/")]
+pages = [("home", "/"), ("class", "/b-2-residential-and-small-commercial/"), ("product", "/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-highlighted-and-tabbed-book-package/")]
 def font_css(url):
     out = []
     for fam in parse_qs(urlparse(url).query).get("family", []):

@@ -48,139 +48,139 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Roofing And Siding Contractor (C-15) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-practice-exams/)
+[Nevada Roofing And Siding Contractor (C-15) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235727691833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235727691833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada C-15 Roofing and Siding Contractor - Online Exam Prep Course](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-course/)
+[Nevada C-15 Roofing and Siding Contractor - Online Exam Prep Course](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-c-15-roofing-and-siding-contractor-online-exam-prep-course/)
 
 An online course with practice exams.
 
 $250 (was $279) Save 10%
-[Buy now](https://1examprep.com/cart/32900921786425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-course/)
+[Buy now](https://1examprep.com/cart/32900921786425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-c-15-roofing-and-siding-contractor-online-exam-prep-course/)
 
 Online Exam Prep Course
-[Nevada Roofing and Siding Contractor (C-15) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-course-2/)
+[Nevada Roofing and Siding Contractor (C-15) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46261901623353:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-course-2/)
+[Buy now](https://1examprep.com/cart/46261901623353:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-online-exam-prep/)
 
 ## Roofing and Siding Contractor (C-15) options: books for the exam room
 
 4 products of the 13 Roofing and Siding Contractor (C-15) options, from $199.
 
 Book Package
-[Nevada Roofing and Siding Contractor (C-15) Exam Book Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/book-package/)
+[Nevada Roofing and Siding Contractor (C-15) Exam Book Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,195 (was $1,295) Save 8%  to $1,695
-[Buy now](https://1examprep.com/cart/46390858612793:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/book-package/)
+[Buy now](https://1examprep.com/cart/46390858612793:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Roofing and Siding Contractor (C-15) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-books/)
+[Nevada Roofing and Siding Contractor (C-15) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
-[Buy now](https://1examprep.com/cart/46390892199993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46390892199993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Roofing and Siding Contractor (C-15) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/highlighted-tabbed/)
+[Nevada Roofing and Siding Contractor (C-15) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $1,695 (was $1,895) Save 11%  to $1,990
-[Buy now](https://1examprep.com/cart/46390902882361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46390902882361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Roofing and Siding Contractor (C-15) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-books-highlighted/)
+[Nevada Roofing and Siding Contractor (C-15) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%  to $694
-[Buy now](https://1examprep.com/cart/46390908125241:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46390908125241:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Roofing and Siding Contractor (C-15) options: live training and rentals
 
 5 products of the 13 Roofing and Siding Contractor (C-15) options, from $595.
 
 Live Virtual Training
-[Nevada Roofing and Siding Contractor (C-15) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/live-training/)
+[Nevada Roofing and Siding Contractor (C-15) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46253153517625:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/live-training/)
+[Buy now](https://1examprep.com/cart/46253153517625:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Roofing and Siding Contractor (C-15) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/rental-package/)
+[Nevada Roofing and Siding Contractor (C-15) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $2,285 (was $2,585) Save 12%  to $3,035
-[Buy now](https://1examprep.com/cart/46261902245945:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/rental-package/)
+[Buy now](https://1examprep.com/cart/46261902245945:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Roofing and Siding Contractor (C-15) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-rental/)
+[Nevada Roofing and Siding Contractor (C-15) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $989 (was $1,289) Save 23%  to $1,739
-[Buy now](https://1examprep.com/cart/46261902606393:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46261902606393:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Roofing and Siding Contractor (C-15) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/ultimate-rental/)
+[Nevada Roofing and Siding Contractor (C-15) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $2,710 (was $3,110) Save 13%
-[Buy now](https://1examprep.com/cart/45852151742521:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852151742521:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Roofing and Siding Contractor (C-15) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/ultimate-exam-room/)
+[Nevada Roofing and Siding Contractor (C-15) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,414 (was $1,814) Save 22%
-[Buy now](https://1examprep.com/cart/45859402776633:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45859402776633:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Roofing and Siding Contractor (C-15) option: all-inclusive and licensing services
 
 1 product of the 13 Roofing and Siding Contractor (C-15) options, from $3,710.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Roofing and Siding Contractor (C-15) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Roofing and Siding Contractor (C-15) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/the-1-package-all-inclusive-nevada-roofing-and-siding-contractor-c-15-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $3,710 (was $4,210) Save 12%
-[Buy now](https://1examprep.com/cart/45859418538041:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859418538041:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/the-1-package-all-inclusive-nevada-roofing-and-siding-contractor-c-15-exam-licensing-and-business-setup-solution/)
 
 ## How do the Roofing and Siding Contractor (C-15) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-course/) | an online course with practice exams | $250
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/online-course-2/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/book-package/) | the reference books, new and unmarked | $1,195
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/highlighted-tabbed/) | the reference books already highlighted and tabbed | $1,695
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/rental-package/) | rental books plus the online course | $2,285
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-rental/) | rental exam-room books plus the online course | $989
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/ultimate-rental/) | tabbed rental books, course and live training | $2,710
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/ultimate-exam-room/) | exam-room books, course and application help | $1,414
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/the-1-package/) | exam prep, books, paperwork and business setup | $3,710
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-c-15-roofing-and-siding-contractor-online-exam-prep-course/) | an online course with practice exams | $250
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-book-package/) | the reference books, new and unmarked | $1,195
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $1,695
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-and-courses-rental-package/) | rental books plus the online course | $2,285
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $2,710
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/the-1-package-all-inclusive-nevada-roofing-and-siding-contractor-c-15-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $3,710
 
 ## How does the Roofing and Siding Contractor (C-15) exam work?
 

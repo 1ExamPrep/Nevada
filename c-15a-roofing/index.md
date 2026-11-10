@@ -48,121 +48,121 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Roofing Contractor (C-15A) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-15a-roofing/online-practice-exams/)
+[Nevada Roofing Contractor (C-15A) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235729526841:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235729526841:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Roofing Contractor (C-15A) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-15a-roofing/online-course/)
+[Nevada Roofing Contractor (C-15A) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%
-[Buy now](https://1examprep.com/cart/45851673133113:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/online-course/)
+[Buy now](https://1examprep.com/cart/45851673133113:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-online-exam-prep/)
 
 ## Roofing Contractor (C-15A) options: books for the exam room
 
 4 products of the 11 Roofing Contractor (C-15A) options, from $199.
 
 Book Package
-[Nevada Roofing Contractor (C-15A) Exam Book Package](https://passyournevadacontractorexam.com/c-15a-roofing/book-package/)
+[Nevada Roofing Contractor (C-15A) Exam Book Package](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,195 (was $1,295) Save 8%  to $1,695
-[Buy now](https://1examprep.com/cart/46390815457337:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/book-package/)
+[Buy now](https://1examprep.com/cart/46390815457337:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Roofing Contractor (C-15A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-books/)
+[Nevada Roofing Contractor (C-15A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
-[Buy now](https://1examprep.com/cart/46390817488953:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46390817488953:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Roofing Contractor (C-15A) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-15a-roofing/highlighted-tabbed/)
+[Nevada Roofing Contractor (C-15A) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $1,695 (was $1,895) Save 11%  to $1,990
-[Buy now](https://1examprep.com/cart/46390826565689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46390826565689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Roofing Contractor (C-15A) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-books-highlighted/)
+[Nevada Roofing Contractor (C-15A) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%  to $694
-[Buy now](https://1examprep.com/cart/46390831710265:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46390831710265:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Roofing Contractor (C-15A) options: live training and rentals
 
 4 products of the 11 Roofing Contractor (C-15A) options, from $989.
 
 Books and Courses Rental
-[Nevada Roofing Contractor (C-15A) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-15a-roofing/rental-package/)
+[Nevada Roofing Contractor (C-15A) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $2,285 (was $2,585) Save 12%  to $2,735
-[Buy now](https://1examprep.com/cart/46390849011769:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/rental-package/)
+[Buy now](https://1examprep.com/cart/46390849011769:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Roofing Contractor (C-15A) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-rental/)
+[Nevada Roofing Contractor (C-15A) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $989 (was $1,289) Save 23%  to $1,409
-[Buy now](https://1examprep.com/cart/46390853337145:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46390853337145:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Roofing Contractor (C-15A) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-15a-roofing/ultimate-rental/)
+[Nevada Roofing Contractor (C-15A) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $2,710 (was $3,110) Save 13%
-[Buy now](https://1examprep.com/cart/45852162555961:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852162555961:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Roofing Contractor (C-15A) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-15a-roofing/ultimate-exam-room/)
+[Nevada Roofing Contractor (C-15A) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,414 (was $1,814) Save 22%
-[Buy now](https://1examprep.com/cart/45859417096249:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45859417096249:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Roofing Contractor (C-15A) option: all-inclusive and licensing services
 
 1 product of the 11 Roofing Contractor (C-15A) options, from $3,710.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Roofing Contractor (C-15A) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-15a-roofing/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Roofing Contractor (C-15A) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-15a-roofing/the-1-package-all-inclusive-nevada-roofing-contractor-c-15a-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $3,710 (was $4,210) Save 12%
-[Buy now](https://1examprep.com/cart/45859485024313:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859485024313:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15a-roofing/the-1-package-all-inclusive-nevada-roofing-contractor-c-15a-exam-licensing-and-business-setup-solution/)
 
 ## How do the Roofing Contractor (C-15A) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-15a-roofing/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-15a-roofing/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-15a-roofing/book-package/) | the reference books, new and unmarked | $1,195
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-15a-roofing/highlighted-tabbed/) | the reference books already highlighted and tabbed | $1,695
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-15a-roofing/rental-package/) | rental books plus the online course | $2,285
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-15a-roofing/exam-room-rental/) | rental exam-room books plus the online course | $989
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-15a-roofing/ultimate-rental/) | tabbed rental books, course and live training | $2,710
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-15a-roofing/ultimate-exam-room/) | exam-room books, course and application help | $1,414
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-15a-roofing/the-1-package/) | exam prep, books, paperwork and business setup | $3,710
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-exam-book-package/) | the reference books, new and unmarked | $1,195
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $1,695
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-and-courses-rental-package/) | rental books plus the online course | $2,285
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $2,710
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-15a-roofing/the-1-package-all-inclusive-nevada-roofing-contractor-c-15a-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $3,710
 
 ## How does the Roofing Contractor (C-15A) exam work?
 

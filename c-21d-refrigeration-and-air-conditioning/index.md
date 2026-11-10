@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Refrigeration and Air Conditioning Contractor (C-21D) Exam Book Package](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/book-package/)
+[Nevada Refrigeration and Air Conditioning Contractor (C-21D) Exam Book Package](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/nevada-refrigeration-and-air-conditioning-contractor-c-21d-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $245 (was $345) Save 29%
-[Buy now](https://1examprep.com/cart/45740490293305:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/book-package/)
+[Buy now](https://1examprep.com/cart/45740490293305:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/nevada-refrigeration-and-air-conditioning-contractor-c-21d-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Refrigeration and Air Conditioning Contractor (C-21D) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/exam-room-books/)
+[Nevada Refrigeration and Air Conditioning Contractor (C-21D) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/nevada-refrigeration-and-air-conditioning-contractor-c-21d-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815323000889:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815323000889:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/nevada-refrigeration-and-air-conditioning-contractor-c-21d-books-allowed-into-exam-package/)
 
 ## How do the Refrigeration and Air Conditioning Contractor (C-21D) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/book-package/) | the reference books, new and unmarked | $245
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/nevada-refrigeration-and-air-conditioning-contractor-c-21d-exam-book-package/) | the reference books, new and unmarked | $245
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/nevada-refrigeration-and-air-conditioning-contractor-c-21d-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Refrigeration and Air Conditioning Contractor (C-21D) exam work?
 

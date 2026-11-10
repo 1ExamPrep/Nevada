@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Systems to Replenish Breathing Air For Firefighters Contractor (C-1J) Exam Book Package](https://passyournevadacontractorexam.com/c-1j-breathing-air-systems-for-firefighters/book-package/)
+[Nevada Systems to Replenish Breathing Air For Firefighters Contractor (C-1J) Exam Book Package](https://passyournevadacontractorexam.com/c-1j-breathing-air-systems-for-firefighters/nevada-systems-to-replenish-breathing-air-for-firefighters-contractor-c-1j-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45814510157881:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1j-breathing-air-systems-for-firefighters/book-package/)
+[Buy now](https://1examprep.com/cart/45814510157881:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1j-breathing-air-systems-for-firefighters/nevada-systems-to-replenish-breathing-air-for-firefighters-contractor-c-1j-exam-book-package/)
 
 ## How do the Breathing Air Systems for Firefighters Contractor (C-1J) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-1j-breathing-air-systems-for-firefighters/book-package/) | the reference books, new and unmarked | $199
+[Book Package](https://passyournevadacontractorexam.com/c-1j-breathing-air-systems-for-firefighters/nevada-systems-to-replenish-breathing-air-for-firefighters-contractor-c-1j-exam-book-package/) | the reference books, new and unmarked | $199
 
 ## How does the Breathing Air Systems for Firefighters Contractor (C-1J) exam work?
 

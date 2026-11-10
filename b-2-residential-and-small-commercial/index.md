@@ -48,130 +48,130 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Residential and Small Commercial General Building Contractor (B-2) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/online-practice-exams/)
+[Nevada Residential and Small Commercial General Building Contractor (B-2) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-general-building-contractor-b-2-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235689058361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235689058361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-general-building-contractor-b-2-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Residential And Small Commercial (B-2) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/online-course/)
+[Nevada Residential And Small Commercial (B-2) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266870530105:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/online-course/)
+[Buy now](https://1examprep.com/cart/46266870530105:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-online-exam-prep/)
 
 ## Residential and Small Commercial Contractor (B-2) options: books for the exam room
 
 4 products of the 12 Residential and Small Commercial Contractor (B-2) options, from $795.
 
 Book Package
-[Nevada Residential And Small Commercial (B-2) Exam Book Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/book-package/)
+[Nevada Residential And Small Commercial (B-2) Exam Book Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,395 (was $1,495) Save 7%  to $1,995
-[Buy now](https://1examprep.com/cart/46390410903609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/book-package/)
+[Buy now](https://1examprep.com/cart/46390410903609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Residential And Small Commercial (B-2) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-books/)
+[Nevada Residential And Small Commercial (B-2) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $795 (was $895) Save 11%  to $1,095
-[Buy now](https://1examprep.com/cart/46390414966841:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46390414966841:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Residential And Small Commercial (B-2) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/highlighted-tabbed/)
+[Nevada Residential And Small Commercial (B-2) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $1,995 (was $2,195) Save 9%  to $2,290
-[Buy now](https://1examprep.com/cart/46390418702393:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46390418702393:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Residential And Small Commercial (B-2) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-books-highlighted/)
+[Nevada Residential And Small Commercial (B-2) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $1,095 (was $1,295) Save 15%  to $1,390
-[Buy now](https://1examprep.com/cart/46390427058233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46390427058233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Residential and Small Commercial Contractor (B-2) options: live training and rentals
 
 5 products of the 12 Residential and Small Commercial Contractor (B-2) options, from $595.
 
 Live Virtual Training
-[Nevada Residential and Small Commercial (B-2) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/live-training/)
+[Nevada Residential and Small Commercial (B-2) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46253175013433:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/live-training/)
+[Buy now](https://1examprep.com/cart/46253175013433:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Residential And Small Commercial (B-2) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/rental-package/)
+[Nevada Residential And Small Commercial (B-2) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $2,585 (was $2,885) Save 10%  to $3,335
-[Buy now](https://1examprep.com/cart/46266870956089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/rental-package/)
+[Buy now](https://1examprep.com/cart/46266870956089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Residential And Small Commercial (B-2) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-rental/)
+[Nevada Residential And Small Commercial (B-2) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $1,685 (was $1,985) Save 15%  to $2,435
-[Buy now](https://1examprep.com/cart/46266871021625:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46266871021625:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Residential And Small Commercial (B-2) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/ultimate-rental/)
+[Nevada Residential And Small Commercial (B-2) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $3,010 (was $3,410) Save 12%
-[Buy now](https://1examprep.com/cart/45852079030329:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852079030329:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Residential and Small Commercial (B-2) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/ultimate-exam-room/)
+[Nevada Residential and Small Commercial (B-2) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $2,110 (was $2,510) Save 16%
-[Buy now](https://1examprep.com/cart/45859078635577:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45859078635577:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Residential and Small Commercial Contractor (B-2) option: all-inclusive and licensing services
 
 1 product of the 12 Residential and Small Commercial Contractor (B-2) options, from $4,010.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Residential And Small Commercial (B-2) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Residential And Small Commercial (B-2) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/the-1-package-all-inclusive-nevada-residential-and-small-commercial-b-2-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $4,010 (was $4,510) Save 11%
-[Buy now](https://1examprep.com/cart/45858281881657:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/the-1-package/)
+[Buy now](https://1examprep.com/cart/45858281881657:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/the-1-package-all-inclusive-nevada-residential-and-small-commercial-b-2-exam-licensing-and-business-setup-solution/)
 
 ## How do the Residential and Small Commercial Contractor (B-2) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/book-package/) | the reference books, new and unmarked | $1,395
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-books/) | the references PSI allows in the exam room | $795
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/highlighted-tabbed/) | the reference books already highlighted and tabbed | $1,995
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $1,095
-[Live Virtual Training](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/rental-package/) | rental books plus the online course | $2,585
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-rental/) | rental exam-room books plus the online course | $1,685
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/ultimate-rental/) | tabbed rental books, course and live training | $3,010
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/ultimate-exam-room/) | exam-room books, course and application help | $2,110
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/the-1-package/) | exam prep, books, paperwork and business setup | $4,010
+[Online Practice Questions](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-general-building-contractor-b-2-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-book-package/) | the reference books, new and unmarked | $1,395
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $795
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $1,995
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $1,095
+[Live Virtual Training](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-and-courses-rental-package/) | rental books plus the online course | $2,585
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $1,685
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $3,010
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $2,110
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/the-1-package-all-inclusive-nevada-residential-and-small-commercial-b-2-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $4,010
 
 ## How does the Residential and Small Commercial Contractor (B-2) exam work?
 

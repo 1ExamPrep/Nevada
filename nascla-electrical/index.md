@@ -48,37 +48,37 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Exam Prep Course (any state)
-[NASCLA Residential Electrical - Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/online-course-3/)
+[NASCLA Residential Electrical - Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/nascla-residential-electrical-online-exam-prep-course/)
 
 An online course with practice exams.
 
 $350 (was $389) Save 10%
-[Buy now](https://1examprep.com/cart/41314834153529:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/nascla-electrical/online-course-3/)
+[Buy now](https://1examprep.com/cart/41314834153529:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/nascla-electrical/nascla-residential-electrical-online-exam-prep-course/)
 
 Online Exam Prep Course (any state)
-[NASCLA Journeyman Electrician Exam - Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/online-course/)
+[NASCLA Journeyman Electrician Exam - Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/nascla-journeyman-electrician-exam-online-exam-prep-course/)
 
 An online course with practice exams.
 
 $395 (was $495) Save 20%  to $595
-[Buy now](https://1examprep.com/cart/46432396967993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/nascla-electrical/online-course/)
+[Buy now](https://1examprep.com/cart/46432396967993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/nascla-electrical/nascla-journeyman-electrician-exam-online-exam-prep-course/)
 
 Online Exam Prep Course (any state)
-[NASCLA Master Unlimited Electrical Contractor Exam - Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/online-course-2/)
+[NASCLA Master Unlimited Electrical Contractor Exam - Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/nascla-master-unlimited-electrical-contractor-exam-online-exam-prep-course/)
 
 An online course with practice exams.
 
 $395 (was $495) Save 20%  to $695
-[Buy now](https://1examprep.com/cart/46432394018873:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/nascla-electrical/online-course-2/)
+[Buy now](https://1examprep.com/cart/46432394018873:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/nascla-electrical/nascla-master-unlimited-electrical-contractor-exam-online-exam-prep-course/)
 
 ## How do the NASCLA Electrical Exams options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/online-course-3/) (any state) | an online course with practice exams | $350
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/online-course/) (any state) | an online course with practice exams | $395
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/online-course-2/) (any state) | an online course with practice exams | $395
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/nascla-residential-electrical-online-exam-prep-course/) (any state) | an online course with practice exams | $350
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/nascla-journeyman-electrician-exam-online-exam-prep-course/) (any state) | an online course with practice exams | $395
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/nascla-electrical/nascla-master-unlimited-electrical-contractor-exam-online-exam-prep-course/) (any state) | an online course with practice exams | $395
 
 ## How does the NASCLA Electrical Exams exam work?
 

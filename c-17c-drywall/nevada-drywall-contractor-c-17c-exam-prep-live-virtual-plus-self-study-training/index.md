@@ -1,0 +1,284 @@
+---
+title: Nevada Drywall Contractor (C-17C) Live Virtual Training
+url: https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-prep-live-virtual-plus-self-study-training/
+updated: 2026-11-10
+site: Pass Your Nevada Contractor Exam
+description: Live Virtual Training for the Nevada Drywall Contractor (C-17C) exam: live virtual classes plus self-study. $595. One-click checkout.
+---
+
+[All licenses](https://passyournevadacontractorexam.com/) /[Carpentry, drywall, paint and plaster](https://passyournevadacontractorexam.com/#finish) /[Drywall Contractor (C-17C)](https://passyournevadacontractorexam.com/c-17c-drywall/) /Live Virtual Training
+
+Drywall Contractor (C-17C) · Live Virtual Training
+
+# Nevada Drywall Contractor (C-17C) Exam Prep - Live Virtual + Self Study Training
+
+The Nevada Drywall Contractor (C-17C) Exam Prep - Live Virtual + Self Study Training is live virtual classes plus self-study for the Drywall Contractor (C-17C) exam (Nevada), at $595, 25% off the $795 list price. Books ship from our fulfillment center; online parts arrive by email. Call (877) 775-9400 with questions first.
+
+$595 (was $795) Save 25% [Buy now, go to checkout](https://1examprep.com/cart/46254451884089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com)
+
+- Secure checkout, fulfilled by 1 Exam Prep
+- Books ship from our fulfillment center; online parts arrive by email
+- Questions before you buy? Call [(877) 775-9400](tel:+18777759400)
+
+## Key takeaways
+
+- Live Virtual Training: $595, down from $795.
+- For the Drywall Contractor (C-17C) exam; live virtual classes plus self-study.
+- Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
+- Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
+
+Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+
+## What does the Live Virtual Training include?
+
+- Live Virtual Training: live virtual classes plus self-study
+- Written for the Drywall Contractor (C-17C) exam
+- Books ship from our fulfillment center; online parts arrive by email
+
+The Live Virtual Training costs $595 and is written for the Drywall Contractor (C-17C) exam. Books ship from our fulfillment center; online parts arrive by email, and Buy now takes you straight to checkout.
+
+## About this Drywall Contractor (C-17C) package
+
+The **Nevada Drywall Contractor (C-17C) Exam Prep - Live Virtual + Self Study Training** product is designed for students preparing for the Nevada C-17C Drywall Contractor exam who want a structured combination of live virtual instruction and self-study preparation. This training supports review of drywall trade knowledge, gypsum construction, building construction fundamentals, wall and ceiling systems, drywall installation, fasteners, accessories, joint treatment, finishing, workmanship, and building code navigation.
+
+Drywall contractor exam preparation requires more than field experience hanging board, finishing joints, patching surfaces, or working around wall and ceiling systems. Students may need to review gypsum board products, drywall panel handling, cutting, fitting, fastening, framing coordination, wall assemblies, ceiling assemblies, backing, blocking, layout, building materials, fasteners, corner beads, trim accessories, control joints, joint tape, joint compound, finishing levels, sanding awareness, repair awareness, sound control awareness, fire-resistance-rated assembly awareness, and code reference navigation. This live virtual plus self-study training gives students a more organized way to prepare for the Nevada Drywall Contractor (C-17C) exam using the books and technical references connected to the exam.
+
+The product is built around the listed study references for the Nevada Drywall Contractor (C-17C) Exam: **Carpentry and Building Construction, 2016** and **Gypsum Construction Handbook, 7th edition**. The exam room approved book provided for this product is the **International Building Code, 2018**.
+
+The training is useful for Nevada C-17C drywall contractor candidates, drywall installers, drywall finishers, tapers, gypsum construction workers, wall and ceiling workers, commercial interior workers, residential drywall professionals, framing and drywall workers, construction supervisors, estimators, project managers, qualifying parties, and students preparing for the Nevada Drywall Contractor exam. Students with field experience can use the training to connect practical drywall knowledge to reference-based exam preparation. Students newer to contractor exam preparation can use the course structure to build familiarity with gypsum terminology, building construction fundamentals, wall and ceiling systems, drywall finishing methods, building code organization, and organized study habits.
+
+## More about this package
+
+The Nevada C-17C Drywall Contractor preparation process should include steady review of all listed references. *Carpentry and Building Construction, 2016* supports general building construction, framing coordination, wall systems, ceiling systems, floor systems, building materials, layout, construction tools, fasteners, and construction methods that can affect drywall installation. *Gypsum Construction Handbook, 7th edition* supports gypsum board products, drywall installation, wall assemblies, ceiling assemblies, fasteners, accessories, joint treatment, finishing, control joints, sound control awareness, fire-resistance-rated assembly awareness, and gypsum construction methods. The *International Building Code, 2018* supports exam room code navigation for building code questions and code-based reference use.
+
+## What You Get
+
+- **Live Virtual Training:** Instructor-led training designed to support Nevada Drywall Contractor (C-17C) exam preparation.
+- **Self Study Training:** Structured self-study support for reviewing building construction, gypsum construction, drywall systems, finishing, and building code references used for preparation.
+- **Reference-Based Review:** Training organized around the books and technical references connected to the Nevada C-17C Drywall Contractor exam.
+- **Trade-Focused Preparation:** Review support for drywall installation, gypsum board products, wall assemblies, ceiling assemblies, fasteners, accessories, joint treatment, finishing, framing coordination, workmanship, and code navigation.
+- **Exam Room Approved Book Awareness:** Guidance for preparing with the International Building Code, 2018 as the provided exam room approved book.
+
+### Live Class Schedule
+
+[Live Class Schedule The live training schedule is organized around the books and technical references used on the exam. [Click Here to View the Current Live Class Schedule
+
+## Exam Details
+
+The Nevada Drywall Contractor (C-17C) Exam is connected to trade knowledge used in drywall construction, gypsum construction, wall and ceiling systems, building construction fundamentals, installation methods, finishing methods, workmanship, and building code reference use. Students preparing with this live virtual plus self-study training should be ready to review gypsum board products, drywall installation, panel handling, cutting, fitting, wall assemblies, ceiling assemblies, framing coordination, fasteners, accessories, corner beads, trim, control joints, joint treatment, finishing levels, surface preparation, sound control awareness, fire-resistance-rated assembly awareness, and IBC reference navigation.
+
+- **Exam Name:** Nevada Drywall Contractor (C-17C) Exam
+- **Product Type:** Live Virtual + Self Study Training
+- **Study References:** Carpentry and Building Construction, 2016; and Gypsum Construction Handbook, 7th edition.
+- **Exam Room Approved Book:** International Building Code, 2018.
+- **Study Focus:** Drywall installation, gypsum construction, wall systems, ceiling systems, building construction fundamentals, framing coordination, fasteners, accessories, joint treatment, finishing, workmanship, fire-resistance awareness, sound control awareness, and building code navigation.
+
+Students should prepare for questions related to gypsum board types, wall systems, ceiling systems, drywall panel handling, cutting, fitting, fastening, framing coordination, building materials, construction tools, backing, blocking, joint tape, joint compound, corner beads, trim accessories, control joints, finishing levels, surface preparation, sanding awareness, repair awareness, patching, sound control awareness, fire-resistance-rated assembly awareness, construction provisions, code definitions, tables, exceptions, and reference navigation.
+
+Because this exam uses trade references and an exam room approved building code reference, students should practice identifying which topic belongs to which book. A building construction or framing coordination question may point to *Carpentry and Building Construction*. A drywall, gypsum board, fastener, accessory, joint treatment, or finishing question may point to the *Gypsum Construction Handbook*. A building code question may point to the *International Building Code, 2018*.
+
+## Open Book Test
+
+The Nevada Drywall Contractor (C-17C) Exam is prepared for as an open book test using approved references. Open book testing can be helpful, but it is not a shortcut. Students still need to understand drywall concepts, recognize exam topics, know how the references are organized, and practice locating information efficiently.
+
+Open book preparation should focus on reference familiarity and topic recognition. Students should practice matching each question to the reference most likely to contain the answer before searching. This is especially important for a drywall contractor exam because the study materials cover building construction fundamentals, gypsum construction, drywall installation, wall assemblies, ceiling assemblies, finishing, accessories, workmanship, and building code topics.
+
+Students should practice with the exam room approved book and the listed study references throughout preparation. It is important to understand where building construction methods, framing coordination topics, gypsum board products, drywall installation details, fastener guidance, accessory information, joint treatment steps, finishing topics, wall and ceiling assembly information, and building code provisions appear. Open book testing rewards organization, repeated reference use, and careful reading. Students who only bring approved books without practicing reference navigation may lose valuable time searching for answers.
+
+## Licensing Steps
+
+The Nevada Drywall Contractor (C-17C) Exam may be part of a broader contractor licensing or qualification process. Licensing requirements, applications, classifications, qualifying rules, experience documentation, fees, approvals, insurance requirements, bonding requirements, local requirements, and testing procedures are controlled by the applicable Nevada authority or organization requiring the exam. Students should follow the current instructions for their specific licensing path.
+
+A practical preparation path for this live virtual plus self-study training may include the following steps:
+
+- Confirm that the Nevada Drywall Contractor (C-17C) Exam matches your licensing or qualification goal.
+- Review the listed study references before beginning class and self-study sessions.
+- Attend live virtual training sessions according to the posted class schedule.
+- Use self-study time to review the references and reinforce topics covered during training.
+- Study *Carpentry and Building Construction, 2016* for building construction fundamentals, framing coordination, wall systems, ceiling systems, floor systems, building materials, construction tools, fasteners, layout, and general construction methods.
+- Study *Gypsum Construction Handbook, 7th edition* for gypsum board products, drywall installation, wall assemblies, ceiling assemblies, fasteners, accessories, joint treatment, finishing, control joint awareness, sound control awareness, and gypsum construction methods.
+- Study the *International Building Code, 2018* for building code topics, definitions, tables, exceptions, construction provisions, fire-resistance awareness, interior wall and ceiling provisions, and code navigation connected to the exam room approved book.
+- Review missed topics after each training session and return to the appropriate reference.
+- Practice identifying whether a question is testing building construction, framing coordination, gypsum board products, drywall installation, wall systems, ceiling systems, fasteners, accessories, joint treatment, finishing, fire-resistance awareness, sound control awareness, building code provisions, workmanship, or reference navigation.
+- Review current exam-day rules for approved references, tabs, highlighting, identification, scheduling, calculators, and testing procedures.
+
+Students should treat Nevada C-17C Drywall Contractor exam preparation as both a trade knowledge review and a reference-navigation exercise. Field experience is valuable, but the exam may require students to connect practical drywall work to written installation methods, gypsum construction guidance, building construction fundamentals, code language, tables, definitions, diagrams, assemblies, and approved book organization.
+
+## State Requirements
+
+Nevada contractor requirements may vary by classification, application path, experience requirements, approval process, financial requirements, insurance requirements, bonding requirements, local rules, fees, renewal responsibilities, and other requirements. Students preparing for the Nevada Drywall Contractor (C-17C) Exam should make sure they are following the correct path and using the correct references for their exam preparation.
+
+The live virtual plus self-study training product supports exam preparation by helping students review the listed Nevada C-17C reference materials. It does not replace official applications, eligibility requirements, experience documentation, testing rules, local requirements, licensing approvals, insurance requirements, bonding responsibilities, or renewal responsibilities. Students should complete all required steps connected to the authority or organization requiring the exam.
+
+Students should also understand the relationship between exam preparation and licensing. Passing an exam may be one part of the process, but additional steps may apply depending on the jurisdiction, license classification, experience requirements, application requirements, approval process, and current Nevada instructions.
+
+## Reference Books
+
+- **Carpentry and Building Construction, 2016**
+A building construction reference used to study building construction fundamentals, framing coordination, wall systems, ceiling systems, floor systems, building materials, construction tools, fasteners, layout, and general construction methods that support drywall work.
+- **Gypsum Construction Handbook, 7th edition**
+A gypsum construction reference used to study gypsum board products, drywall installation, wall assemblies, ceiling assemblies, fasteners, accessories, joint treatment, finishing, control joint awareness, sound control awareness, and gypsum construction methods.
+
+## Exam Room Approved Books
+
+- **International Building Code, 2018**
+The provided exam room approved book for the Nevada Drywall Contractor (C-17C) Exam. Students should use this code reference to prepare for building code topics, definitions, tables, exceptions, construction provisions, fire-resistance awareness, interior wall and ceiling provisions, and code navigation.
+
+## Test Information and Study Materials
+
+Students preparing for the Nevada Drywall Contractor (C-17C) Exam should use the live virtual training, self-study structure, and listed references together. The preparation process should include building construction review, framing coordination review, gypsum construction review, drywall installation review, wall and ceiling assembly review, fastener review, accessory review, joint treatment review, finishing review, building code review, workmanship review, and repeated reference-navigation practice.
+
+*Carpentry and Building Construction, 2016* should be used for construction fundamentals that support drywall installation. Students should review wall systems, ceiling systems, framing coordination, floor systems, building materials, layout, measuring, cutting, construction tools, fasteners, and general building methods. Drywall installation depends on the condition and layout of the underlying framing and building structure, so students should understand how framing, openings, walls, ceilings, and materials affect drywall results.
+
+*Gypsum Construction Handbook, 7th edition* should be used as the key drywall and gypsum construction reference. Students should review gypsum board products, panel types, wall assemblies, ceiling assemblies, fasteners, accessories, beads, control joints, joint tape, joint compound, finishing levels, sanding awareness, sound control awareness, fire-resistance-rated assembly awareness, and gypsum construction methods. Drywall questions may focus on installation sequence, component purpose, material selection, fastening, finishing, or assembly performance.
+
+The *International Building Code, 2018* should be used for exam room code navigation. Students should review definitions, tables, construction provisions, exceptions, fire-resistance awareness, interior construction topics, wall and ceiling provisions, and code organization. Code questions may require careful reading because the correct answer can depend on exact code language, construction condition, table note, exception, or definition.
+
+Drywall installation should receive steady attention during study. Students should review panel handling, cutting, fitting, board orientation awareness, fastening, edges and ends, openings, ceilings, walls, backing, blocking, and coordination with framing. A question may describe an installation condition and require the student to connect it to a gypsum handbook topic or building construction concept.
+
+Wall and ceiling assemblies should be reviewed as systems. Students should study how gypsum board, fasteners, framing, accessories, joints, fire-resistance awareness, sound control awareness, and finishing work together. A drywall assembly question may include details about layers, support, fastening, finish requirements, performance expectations, or code-related conditions.
+
+## More on test Information and Study Materials
+
+Joint treatment and finishing should be included in every study routine. Students should review joint tape, joint compound, fastener treatment, corner beads, trim accessories, finishing levels, sanding awareness, surface preparation, texture awareness, and workmanship. Practice should focus on recognizing the sequence of finishing and the purpose of each material or accessory.
+
+Accessories and control joints should receive focused review. Students should study corner beads, casing beads, expansion and control joint awareness, trims, edge protection, reveals, and accessory placement. Questions may describe a location or condition and require students to identify the purpose of a specific accessory or joint treatment method.
+
+Fire-resistance-rated construction awareness should be studied carefully. Students should understand that wall and ceiling assemblies may have specific requirements that depend on materials, layers, fasteners, joints, and listed assembly details. Students should review code language and gypsum handbook guidance related to fire-resistance awareness without relying on field assumptions alone.
+
+Sound control awareness should also be included in the study plan. Drywall systems may involve sound transmission awareness, resilient channels, insulation coordination, sealant awareness, and assembly performance. Students should review how gypsum systems support both performance and appearance goals.
+
+Workmanship should be studied throughout the preparation process. Drywall work is affected by framing coordination, panel layout, fastening, joint placement, compound application, sanding, accessories, surface preparation, and finish appearance. Students should connect technical procedures to finished quality and long-term performance.
+
+Reference navigation should be part of every study session. Students should practice using indexes, tables, chapter headings, section titles, code definitions, diagrams, gypsum handbook topics, assembly information, accessory descriptions, finishing references, and construction terminology. Because the Nevada C-17C preparation references cover building construction, gypsum construction, and code requirements, students should become comfortable switching between references quickly and accurately.
+
+Live virtual training helps students follow an organized review path, while self-study gives students time to return to the references, reinforce topics, and practice locating information. Students should use each live training session as a guide for what to review next, then use self-study time to work through the books in more detail.
+
+## More on test Information and Study Materials
+
+A strong study routine should include repeated review across all listed references. Students can begin by reviewing building construction fundamentals, then move into gypsum construction and drywall installation, then review building code navigation. After that, students can combine all subject areas into mixed review. This method helps students identify whether a question is testing construction fundamentals, gypsum board products, drywall installation, wall assemblies, ceiling assemblies, finishing, code, workmanship, or reference navigation.
+
+Students should also practice reading each question carefully. Nevada Drywall Contractor (C-17C) exam questions may include details about building materials, framing coordination, drywall panels, gypsum board products, wall systems, ceiling systems, fasteners, accessories, joint treatment, finishing levels, sound control, fire-resistance awareness, code tables, exceptions, definitions, or workmanship. Careful reading helps students avoid selecting an answer based only on field habit. When a question points to written reference material, students should return to the correct source and confirm the answer during study.
+
+## How Pass Your Nevada Contractor Exam Helps You Reach Your Goal
+
+Pass Your Nevada Contractor Exam helps students prepare for the Nevada Drywall Contractor (C-17C) Exam through live virtual training, self-study structure, organized study guidance, trade-focused review, reference-based preparation, and confidence-building study support. This product is designed to help students actively review the material, follow a structured preparation path, and become more comfortable with the references connected to the exam.
+
+The live virtual training format helps students stay organized and focused while working through the exam topics. The self-study portion gives students time to review the references, strengthen weaker areas, revisit class topics, practice book navigation, and build a consistent study routine. Together, the live and self-study structure supports a more complete preparation experience.
+
+For students with drywall installation, gypsum construction, taping, finishing, wall assemblies, ceiling assemblies, commercial interiors, residential drywall, construction supervision, estimating, project management, or field construction experience, this product helps connect practical knowledge to contractor exam-style preparation. For students newer to the Nevada C-17C Drywall Contractor subject area, the training helps break the study process into smaller, more manageable review areas.
+
+Pass Your Nevada Contractor Exam supports students through organized study guidance, trade-focused review, practice-oriented preparation, reference navigation, building construction review, gypsum construction review, drywall installation review, wall and ceiling assembly review, fastener review, accessory review, joint treatment review, finishing review, building code review, workmanship review, and confidence-building study structure. This product does not guarantee a passing score, licensing approval, employment, state approval, local approval, or any specific exam outcome, but it gives students a more organized way to prepare for the Nevada Drywall Contractor (C-17C) Exam.
+
+## FAQ Section
+
+### What is included with the Nevada Drywall Contractor (C-17C) Live Virtual + Self Study Training?
+
+The product includes live virtual training and self-study support designed to help students prepare for the Nevada Drywall Contractor (C-17C) Exam using the listed references.
+
+### Where can I view the live class schedule?
+
+The live training schedule is available through the [Live Class Schedule.
+
+### What references are used for this training?
+
+The listed study references are Carpentry and Building Construction, 2016 and Gypsum Construction Handbook, 7th edition.
+
+### What is the exam room approved book?
+
+The provided exam room approved book is the International Building Code, 2018.
+
+### Is the Nevada Drywall Contractor (C-17C) exam open book?
+
+The exam is prepared for as an open book test using approved references. Students should practice using the listed references and the exam room approved book while following current exam-day rules for approved materials.
+
+### Does this product include online practice questions?
+
+The listing is for live virtual plus self-study training. Students should review the specific product details for the training materials included with this product.
+
+### Does this training help with drywall installation?
+
+Yes. The training supports review of drywall panel handling, cutting, fitting, fastening, wall systems, ceiling systems, framing coordination, accessories, joint treatment, finishing, and workmanship.
+
+### Does this training help with gypsum construction?
+
+Yes. The training supports review of gypsum board products, wall assemblies, ceiling assemblies, fasteners, accessories, control joints, joint treatment, finishing, sound control awareness, and fire-resistance-rated assembly awareness.
+
+### Does this training help with building construction fundamentals?
+
+Yes. The training supports review of framing coordination, wall systems, ceiling systems, building materials, construction tools, fasteners, layout, and general construction methods that support drywall work.
+
+### Does this training help with joint treatment and finishing?
+
+Yes. The training supports review of joint tape, joint compound, fastener treatment, corner beads, trim accessories, finishing levels, sanding awareness, surface preparation, texture awareness, and workmanship.
+
+### Does this training help with building code navigation?
+
+Yes. The training supports review of International Building Code, 2018 topics, including definitions, tables, exceptions, construction provisions, fire-resistance awareness, interior wall and ceiling provisions, and reference navigation.
+
+### How should I use the live virtual and self-study training together?
+
+## More on fAQ Section
+
+Students should attend the live virtual sessions, review the listed references, use self-study time to revisit class topics, practice reference navigation, and repeat weak areas until the material becomes more familiar.
+
+### Does this product guarantee that I will pass the exam?
+
+No. This product supports preparation through live virtual training, self-study structure, reference-based review, and organized study guidance, but it does not guarantee a passing score, licensing approval, employment, state approval, local approval, or any specific exam outcome.
+
+## How does the Drywall Contractor (C-17C) exam work?
+
+The Drywall Contractor (C-17C) license comes from the Nevada State Contractors Board. You apply to the NSCB with your experience and financial statement, the Board sends an exam eligibility letter, and you book the CMS and the trade exam with PSI. Scores come right after the exam.
+
+- Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
+- The CMS is open book with the Construction Business and Law Manual for Nevada; trade exams are closed book except for the code references their outline allows.
+- PSI charges $95 for one exam portion, or $140 for a trade exam taken with the CMS, and you get three attempts before the application is void.
+- The Board sets a bond from $1,000 to $500,000 and a monetary limit on every license, based on your experience and financial statements.
+
+## Other Drywall Contractor (C-17C) options
+
+[**Online Practice Questions** Nevada Drywall Contractor (C-17C) Exam - Online Practice Que… $79.99](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-online-practice-questions/) · [**Online Exam Prep Course** Nevada Drywall Contractor (C-17C) Exam - Online Exam Prep $295](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-online-exam-prep/) · [**Book Package** Nevada Drywall Contractor (C-17C) Exam Book Package $425](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-book-package/) · [**Books Allowed in the Exam** Nevada Drywall Contractor (C-17C) Books Allowed into Exam Pa… $199](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-allowed-into-exam-package/) · [**Highlighted and Tabbed Books** Nevada Drywall Contractor (C-17C) Highlighted & Tabbed Book … $695](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-highlighted-and-tabbed-book-package/) · [**Highlighted and Tabbed Exam-Room Books** Nevada Drywall Contractor (C-17C) Highlighted & Tabbed Books… $399](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-highlighted-and-tabbed-books-allowed-into-exam-package/) · [**Books and Courses Rental** Nevada Drywall Contractor (C-17C) - Books & Courses Rental P… $1,285](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-and-courses-rental-package/) · [**Exam-Room Books and Course Rental** Nevada Drywall Contractor (C-17C) Books & Course Rental - Ex… $989](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-and-course-rental-exam-room-approved/) [Compare every Drywall Contractor (C-17C) package →](https://passyournevadacontractorexam.com/c-17c-drywall/) [Choose a different license →](https://passyournevadacontractorexam.com/)
+
+### More carpentry, drywall, paint and plaster
+[Carpentry, Maintenance and Minor Repairs Contractor (C-3)](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/) · [Carpentry and Repairs Contractor (C-3A)](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/) · [Finish Carpentry Contractor (C-3B)](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/) · [Drywall Contractor (C-3E)](https://passyournevadacontractorexam.com/c-3e-drywall/) · [Painting and Decorating Contractor (C-4)](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/) · [Nevada exam FAQ](https://passyournevadacontractorexam.com/faq/) · [Study tips](https://passyournevadacontractorexam.com/blog/)
+
+## Questions before you buy
+
+### How much is the Nevada Drywall Contractor (C-17C) Exam Prep - Live Virtual + Self Study Training?
+
+$595. The price at checkout is the one that applies, and it is shown before you pay.
+
+### What is included?
+
+Live Virtual Training: live virtual classes plus self-study. Books ship from our fulfillment center; online parts arrive by email.
+
+### Is the Drywall Contractor (C-17C) exam open book?
+
+Partly. The Business and Law (CMS) exam is open book with the Construction Business and Law Manual for Nevada. Trade exams are closed book except for the code references named in the PSI content outline for your classification, which is why the exam-room book packages are sold as allowed in the exam.
+
+### Who issues the license or certification?
+
+It comes from the Nevada State Contractors Board (NSCB), with exams by PSI. Buying study material does not register you or make you eligible to test.
+
+### Are these the real exam questions?
+
+No. Licensing exam questions are confidential. Courses and practice exams are original material written to the same subjects and format.
+
+### How fast can I start?
+
+Online courses and practice exams arrive by email after purchase. Books ship from our fulfillment center, 1 Exam Prep; shipping options are shown at checkout.
+
+## Sources
+
+- [NSCB: license examinations](https://www.nvcontractorsboard.com/licensing/license-examinations/)
+- [PSI: Nevada contractor management (CMS) bulletin](https://test-takers.psiexams.com/api/content/bulletin/304)
+- [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
+- [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
+
+Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+
+---
+
+Source: https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-prep-live-virtual-plus-self-study-training/  
+Publisher: Pass Your Nevada Contractor Exam. Orders are fulfilled by 1 Exam Prep (https://1examprep.com). Phone (877) 775-9400, email sales@1examprep.com.  
+Prices change; the product page and checkout show the current price.

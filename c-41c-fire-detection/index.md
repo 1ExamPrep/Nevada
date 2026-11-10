@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Books Allowed in the Exam
-[Nevada Fire Detection Contractor (C-41C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-41c-fire-detection/exam-room-books/)
+[Nevada Fire Detection Contractor (C-41C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-41c-fire-detection/nevada-fire-detection-contractor-c-41c-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $495 (was $595) Save 17%  to $695
-[Buy now](https://1examprep.com/cart/46374397083705:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-41c-fire-detection/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46374397083705:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-41c-fire-detection/nevada-fire-detection-contractor-c-41c-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Fire Detection Contractor (C-41C) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-41c-fire-detection/exam-room-books-highlighted/)
+[Nevada Fire Detection Contractor (C-41C) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-41c-fire-detection/nevada-fire-detection-contractor-c-41c-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $695 (was $895) Save 22%
-[Buy now](https://1examprep.com/cart/46374420873273:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-41c-fire-detection/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46374420873273:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-41c-fire-detection/nevada-fire-detection-contractor-c-41c-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## How do the Fire Detection Contractor (C-41C) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-41c-fire-detection/exam-room-books/) | the references PSI allows in the exam room | $495
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-41c-fire-detection/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $695
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-41c-fire-detection/nevada-fire-detection-contractor-c-41c-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $495
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-41c-fire-detection/nevada-fire-detection-contractor-c-41c-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $695
 
 ## How does the Fire Detection Contractor (C-41C) exam work?
 

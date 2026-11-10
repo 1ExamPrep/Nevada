@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Reinforcing Steel Contractor (C-14A) Exam Book Package](https://passyournevadacontractorexam.com/c-14a-reinforcing-steel/book-package/)
+[Nevada Reinforcing Steel Contractor (C-14A) Exam Book Package](https://passyournevadacontractorexam.com/c-14a-reinforcing-steel/nevada-reinforcing-steel-contractor-c-14a-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $495 (was $595) Save 17%
-[Buy now](https://1examprep.com/cart/45814530441273:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-14a-reinforcing-steel/book-package/)
+[Buy now](https://1examprep.com/cart/45814530441273:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-14a-reinforcing-steel/nevada-reinforcing-steel-contractor-c-14a-exam-book-package/)
 
 ## How do the Reinforcing Steel Contractor (C-14A) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-14a-reinforcing-steel/book-package/) | the reference books, new and unmarked | $495
+[Book Package](https://passyournevadacontractorexam.com/c-14a-reinforcing-steel/nevada-reinforcing-steel-contractor-c-14a-exam-book-package/) | the reference books, new and unmarked | $495
 
 ## How does the Reinforcing Steel Contractor (C-14A) exam work?
 

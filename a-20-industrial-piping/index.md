@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Industrial Piping Contractor (A-20) Exam Book Package](https://passyournevadacontractorexam.com/a-20-industrial-piping/book-package/)
+[Nevada Industrial Piping Contractor (A-20) Exam Book Package](https://passyournevadacontractorexam.com/a-20-industrial-piping/nevada-industrial-piping-contractor-a-20-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $695 (was $795) Save 13%
-[Buy now](https://1examprep.com/cart/45739982061625:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-20-industrial-piping/book-package/)
+[Buy now](https://1examprep.com/cart/45739982061625:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-20-industrial-piping/nevada-industrial-piping-contractor-a-20-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Industrial Piping Contractor (A-20) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-20-industrial-piping/exam-room-books/)
+[Nevada Industrial Piping Contractor (A-20) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-20-industrial-piping/nevada-industrial-piping-contractor-a-20-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815180197945:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-20-industrial-piping/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815180197945:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-20-industrial-piping/nevada-industrial-piping-contractor-a-20-books-allowed-into-exam-package/)
 
 ## How do the Industrial Piping Contractor (A-20) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-20-industrial-piping/book-package/) | the reference books, new and unmarked | $695
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-20-industrial-piping/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/a-20-industrial-piping/nevada-industrial-piping-contractor-a-20-exam-book-package/) | the reference books, new and unmarked | $695
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-20-industrial-piping/nevada-industrial-piping-contractor-a-20-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Industrial Piping Contractor (A-20) exam work?
 

@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Drilling Wells Contractor (C-23) Exam Book Package](https://passyournevadacontractorexam.com/c-23-drilling-wells/book-package/)
+[Nevada Drilling Wells Contractor (C-23) Exam Book Package](https://passyournevadacontractorexam.com/c-23-drilling-wells/nevada-drilling-wells-contractor-c-23-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $195 (was $295) Save 34%
-[Buy now](https://1examprep.com/cart/45740530106425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-23-drilling-wells/book-package/)
+[Buy now](https://1examprep.com/cart/45740530106425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-23-drilling-wells/nevada-drilling-wells-contractor-c-23-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Drilling Wells Contractor (C-23) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-23-drilling-wells/exam-room-books/)
+[Nevada Drilling Wells Contractor (C-23) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-23-drilling-wells/nevada-drilling-wells-contractor-c-23-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $29 (was $39) Save 26%
-[Buy now](https://1examprep.com/cart/45815327260729:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-23-drilling-wells/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815327260729:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-23-drilling-wells/nevada-drilling-wells-contractor-c-23-books-allowed-into-exam-package/)
 
 ## How do the Drilling Wells Contractor (C-23) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-23-drilling-wells/book-package/) | the reference books, new and unmarked | $195
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-23-drilling-wells/exam-room-books/) | the references PSI allows in the exam room | $29
+[Book Package](https://passyournevadacontractorexam.com/c-23-drilling-wells/nevada-drilling-wells-contractor-c-23-exam-book-package/) | the reference books, new and unmarked | $195
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-23-drilling-wells/nevada-drilling-wells-contractor-c-23-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $29
 
 ## How does the Drilling Wells Contractor (C-23) exam work?
 

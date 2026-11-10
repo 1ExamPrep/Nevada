@@ -48,82 +48,82 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Finish Carpentry (C-3B) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/online-practice-exams/)
+[Nevada Finish Carpentry (C-3B) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-c-3b-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235711176761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235711176761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-c-3b-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Finish Carpentry Contractor (C-3B) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/online-course/)
+[Nevada Finish Carpentry Contractor (C-3B) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $495
-[Buy now](https://1examprep.com/cart/46266851622969:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/online-course/)
+[Buy now](https://1examprep.com/cart/46266851622969:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-exam-online-exam-prep/)
 
 Book Package
-[Nevada Finish Carpentry Contractor (C-3B) Exam Book Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/book-package/)
+[Nevada Finish Carpentry Contractor (C-3B) Exam Book Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $145 (was $245) Save 41%  to $445
-[Buy now](https://1examprep.com/cart/46374380568633:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/book-package/)
+[Buy now](https://1examprep.com/cart/46374380568633:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Finish Carpentry Contractor (C-3B) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/highlighted-tabbed/)
+[Nevada Finish Carpentry Contractor (C-3B) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $445 (was $645) Save 31%  to $740
-[Buy now](https://1examprep.com/cart/46374383517753:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46374383517753:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-highlighted-and-tabbed-book-package/)
 
 Live Virtual Training
-[Nevada Finish Carpentry (C-3B) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/live-training/)
+[Nevada Finish Carpentry (C-3B) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-c-3b-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $495 (was $695) Save 29%
-[Buy now](https://1examprep.com/cart/46253189955641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/live-training/)
+[Buy now](https://1examprep.com/cart/46253189955641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-c-3b-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Finish Carpentry Contractor (C-3B) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/rental-package/)
+[Nevada Finish Carpentry Contractor (C-3B) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,035 (was $1,335) Save 22%  to $1,685
-[Buy now](https://1examprep.com/cart/46266853064761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/rental-package/)
+[Buy now](https://1examprep.com/cart/46266853064761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-books-and-courses-rental-package/)
 
 Ultimate Rental Package
-[Nevada Finish Carpentry Contractor (C-3B) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/ultimate-rental/)
+[Nevada Finish Carpentry Contractor (C-3B) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,460 (was $1,860) Save 22%
-[Buy now](https://1examprep.com/cart/45852134834233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852134834233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-ultimate-exam-prep-rental/)
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Finish Carpentry Contractor (C-3B) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Finish Carpentry Contractor (C-3B) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/the-1-package-all-inclusive-nevada-finish-carpentry-contractor-c-3b-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,460 (was $2,960) Save 17%
-[Buy now](https://1examprep.com/cart/45859204268089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859204268089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/the-1-package-all-inclusive-nevada-finish-carpentry-contractor-c-3b-exam-licensing-and-business-setup-solution/)
 
 ## How do the Finish Carpentry Contractor (C-3B) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/book-package/) | the reference books, new and unmarked | $145
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/highlighted-tabbed/) | the reference books already highlighted and tabbed | $445
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/live-training/) | live virtual classes plus self-study | $495
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/rental-package/) | rental books plus the online course | $1,035
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/ultimate-rental/) | tabbed rental books, course and live training | $1,460
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/the-1-package/) | exam prep, books, paperwork and business setup | $2,460
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-c-3b-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-exam-book-package/) | the reference books, new and unmarked | $145
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $445
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-c-3b-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $495
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-books-and-courses-rental-package/) | rental books plus the online course | $1,035
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/nevada-finish-carpentry-contractor-c-3b-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,460
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/the-1-package-all-inclusive-nevada-finish-carpentry-contractor-c-3b-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,460
 
 ## How does the Finish Carpentry Contractor (C-3B) exam work?
 

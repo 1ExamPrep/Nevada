@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Steel Reinforcing and Erection Contractor (C-14) Exam Book Package](https://passyournevadacontractorexam.com/c-14-steel-reinforcing-and-erection/book-package/)
+[Nevada Steel Reinforcing and Erection Contractor (C-14) Exam Book Package](https://passyournevadacontractorexam.com/c-14-steel-reinforcing-and-erection/nevada-steel-reinforcing-and-erection-contractor-c-14-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $595 (was $695) Save 14%
-[Buy now](https://1examprep.com/cart/45814530015289:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-14-steel-reinforcing-and-erection/book-package/)
+[Buy now](https://1examprep.com/cart/45814530015289:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-14-steel-reinforcing-and-erection/nevada-steel-reinforcing-and-erection-contractor-c-14-exam-book-package/)
 
 ## How do the Steel Reinforcing and Erection Contractor (C-14) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-14-steel-reinforcing-and-erection/book-package/) | the reference books, new and unmarked | $595
+[Book Package](https://passyournevadacontractorexam.com/c-14-steel-reinforcing-and-erection/nevada-steel-reinforcing-and-erection-contractor-c-14-exam-book-package/) | the reference books, new and unmarked | $595
 
 ## How does the Steel Reinforcing and Erection Contractor (C-14) exam work?
 

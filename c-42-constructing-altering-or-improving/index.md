@@ -48,37 +48,37 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Constructing, Altering or Improving Contractor (C-42) Exam Book Package](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/book-package/)
+[Nevada Constructing, Altering or Improving Contractor (C-42) Exam Book Package](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $695 (was $795) Save 13%
-[Buy now](https://1examprep.com/cart/45740618350649:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/book-package/)
+[Buy now](https://1examprep.com/cart/45740618350649:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Constructing, Altering or Improving Contractor (C-42) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/exam-room-books/)
+[Nevada Constructing, Altering or Improving Contractor (C-42) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $299
-[Buy now](https://1examprep.com/cart/46371155247161:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46371155247161:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Constructing, Altering or Improving Contractor (C-42) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/exam-room-books-highlighted/)
+[Nevada Constructing, Altering or Improving Contractor (C-42) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%
-[Buy now](https://1examprep.com/cart/45817153912889:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/45817153912889:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## How do the Constructing, Altering or Improving Contractor (C-42) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/book-package/) | the reference books, new and unmarked | $695
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
+[Book Package](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-exam-book-package/) | the reference books, new and unmarked | $695
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/nevada-constructing-altering-or-improving-contractor-c-42-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
 
 ## How does the Constructing, Altering or Improving Contractor (C-42) exam work?
 

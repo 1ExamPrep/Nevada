@@ -48,73 +48,73 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Electrical Contractor (C-2) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-2-electrical/online-practice-exams/)
+[Nevada Electrical Contractor (C-2) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235760099385:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235760099385:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Electrical Contractor (C-2) - Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2-electrical/online-course/)
+[Nevada Electrical Contractor (C-2) - Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-online-exam-prep-course/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $395
-[Buy now](https://1examprep.com/cart/50676714897465:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/online-course/)
+[Buy now](https://1examprep.com/cart/50676714897465:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-online-exam-prep-course/)
 
 Book Package
-[Nevada Electrical Contractor (C-2) Exam Book Package](https://passyournevadacontractorexam.com/c-2-electrical/book-package/)
+[Nevada Electrical Contractor (C-2) Exam Book Package](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $995 (was $1,095) Save 9%  to $1,395
-[Buy now](https://1examprep.com/cart/46374272434233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/book-package/)
+[Buy now](https://1examprep.com/cart/46374272434233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Electrical Contractor (C-2) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2-electrical/exam-room-books/)
+[Nevada Electrical Contractor (C-2) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $495 (was $595) Save 17%  to $695
-[Buy now](https://1examprep.com/cart/46374284722233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46374284722233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Electrical Contractor (C-2) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-2-electrical/highlighted-tabbed/)
+[Nevada Electrical Contractor (C-2) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $1,395 (was $1,595) Save 13%  to $1,690
-[Buy now](https://1examprep.com/cart/46374291931193:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46374291931193:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Electrical Contractor (C-2) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2-electrical/exam-room-books-highlighted/)
+[Nevada Electrical Contractor (C-2) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $695 (was $895) Save 22%  to $990
-[Buy now](https://1examprep.com/cart/46374297239609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46374297239609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Live Virtual Training
-[Nevada Electrical Contractor (C-2) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-2-electrical/live-training/)
+[Nevada Electrical Contractor (C-2) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $395 (was $595) Save 34%
-[Buy now](https://1examprep.com/cart/46276421550137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/live-training/)
+[Buy now](https://1examprep.com/cart/46276421550137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-prep-live-virtual-plus-self-study-training/)
 
 ## How do the Electrical Contractor (C-2) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-2-electrical/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2-electrical/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-2-electrical/book-package/) | the reference books, new and unmarked | $995
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2-electrical/exam-room-books/) | the references PSI allows in the exam room | $495
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-2-electrical/highlighted-tabbed/) | the reference books already highlighted and tabbed | $1,395
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-2-electrical/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $695
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-2-electrical/live-training/) | live virtual classes plus self-study | $395
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-online-exam-prep-course/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-book-package/) | the reference books, new and unmarked | $995
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $495
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $1,395
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $695
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-2-electrical/nevada-electrical-contractor-c-2-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $395
 
 ## How does the Electrical Contractor (C-2) exam work?
 

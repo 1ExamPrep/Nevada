@@ -48,64 +48,64 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions (any state)
-[Online Practice Exam for Code of Federal Regulations, (OSHA) 29 Part 1926](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams-3/)
+[Online Practice Exam for Code of Federal Regulations, (OSHA) 29 Part 1926](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exam-for-code-of-federal-regulations-osha-29-part-1926/)
 
 Timed practice questions online.
 
 $59.95 (was $66.95) Save 10%
-[Buy now](https://1examprep.com/cart/18797677117497:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams-3/)
+[Buy now](https://1examprep.com/cart/18797677117497:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exam-for-code-of-federal-regulations-osha-29-part-1926/)
 
 Online Practice Questions (any state)
-[Online Course Review to the International Plumbing Code (IPC)®](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams-2/)
+[Online Course Review to the International Plumbing Code (IPC)®](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-review-to-the-international-plumbing-code-ipc/)
 
 Timed practice questions online.
 
 $79.99 (was $129.99) Save 38%
-[Buy now](https://1examprep.com/cart/18815500517433:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams-2/)
+[Buy now](https://1examprep.com/cart/18815500517433:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-review-to-the-international-plumbing-code-ipc/)
 
 Online Practice Questions (any state)
-[Online Course Review to the International Building Code (IBC)®](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams/)
+[Online Course Review to the International Building Code (IBC)®](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-review-to-the-international-building-code-ibc/)
 
 Timed practice questions online.
 
 $125 (was $140) Save 11%
-[Buy now](https://1examprep.com/cart/18815488491577:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/18815488491577:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-review-to-the-international-building-code-ibc/)
 
 Online Exam Prep Course (any state)
-[Ray Holder's 2014 Journeyman's Electrician Licensing Tests; Online Course](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-2014/)
+[Ray Holder's 2014 Journeyman's Electrician Licensing Tests; Online Course](https://passyournevadacontractorexam.com/code-books-and-courses/ray-holder-s-2014-journeyman-s-electrician-licensing-tests-online-course/)
 
 An online course with practice exams.
 
 $129.95 (was $145) Save 10%
-[Buy now](https://1examprep.com/cart/38957669453:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-2014/)
+[Buy now](https://1examprep.com/cart/38957669453:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/ray-holder-s-2014-journeyman-s-electrician-licensing-tests-online-course/)
 
 Online Exam Prep Course (any state)
-[Ray Holder's 2014 Master Electrician Exam Questions Tests; Online Course](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-2014-2/)
+[Ray Holder's 2014 Master Electrician Exam Questions Tests; Online Course](https://passyournevadacontractorexam.com/code-books-and-courses/ray-holder-s-2014-master-electrician-exam-questions-tests-online-course/)
 
 An online course with practice exams.
 
 $129.95 (was $145) Save 10%
-[Buy now](https://1examprep.com/cart/38958192077:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-2014-2/)
+[Buy now](https://1examprep.com/cart/38958192077:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/ray-holder-s-2014-master-electrician-exam-questions-tests-online-course/)
 
 Online Exam Prep Course (any state)
-[National Electrical Code Webinar - Complete Series [Parts 1 - 5]](https://passyournevadacontractorexam.com/code-books-and-courses/online-course/)
+[National Electrical Code Webinar - Complete Series [Parts 1 - 5]](https://passyournevadacontractorexam.com/code-books-and-courses/national-electrical-code-webinar-complete-series-parts-1-5/)
 
 An online course with practice exams.
 
 $395 (was $440) Save 10%
-[Buy now](https://1examprep.com/cart/31291007205433:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/online-course/)
+[Buy now](https://1examprep.com/cart/31291007205433:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/code-books-and-courses/national-electrical-code-webinar-complete-series-parts-1-5/)
 
 ## How do the Code Books, Courses and Practice Tests options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams-3/) (any state) | timed practice questions online | $59.95
-[Online Practice Questions](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams-2/) (any state) | timed practice questions online | $79.99
-[Online Practice Questions](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exams/) (any state) | timed practice questions online | $125
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-2014/) (any state) | an online course with practice exams | $129.95
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-2014-2/) (any state) | an online course with practice exams | $129.95
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/code-books-and-courses/online-course/) (any state) | an online course with practice exams | $395
+[Online Practice Questions](https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exam-for-code-of-federal-regulations-osha-29-part-1926/) (any state) | timed practice questions online | $59.95
+[Online Practice Questions](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-review-to-the-international-plumbing-code-ipc/) (any state) | timed practice questions online | $79.99
+[Online Practice Questions](https://passyournevadacontractorexam.com/code-books-and-courses/online-course-review-to-the-international-building-code-ibc/) (any state) | timed practice questions online | $125
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/code-books-and-courses/ray-holder-s-2014-journeyman-s-electrician-licensing-tests-online-course/) (any state) | an online course with practice exams | $129.95
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/code-books-and-courses/ray-holder-s-2014-master-electrician-exam-questions-tests-online-course/) (any state) | an online course with practice exams | $129.95
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/code-books-and-courses/national-electrical-code-webinar-complete-series-parts-1-5/) (any state) | an online course with practice exams | $395
 
 ## How does the Code Books, Courses and Practice Tests exam work?
 

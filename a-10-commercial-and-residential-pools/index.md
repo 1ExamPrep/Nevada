@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Commercial And Residential Pools Contractor (A-10) Exam Book Package](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/book-package/)
+[Nevada Commercial And Residential Pools Contractor (A-10) Exam Book Package](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/nevada-commercial-and-residential-pools-contractor-a-10-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $3,045 (was $3,145) Save 3%
-[Buy now](https://1examprep.com/cart/45726600003641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/book-package/)
+[Buy now](https://1examprep.com/cart/45726600003641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/nevada-commercial-and-residential-pools-contractor-a-10-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Commercial And Residential Pools Contractor (A-10) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/exam-room-books/)
+[Nevada Commercial And Residential Pools Contractor (A-10) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/nevada-commercial-and-residential-pools-contractor-a-10-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $145 (was $245) Save 41%
-[Buy now](https://1examprep.com/cart/45815089758265:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815089758265:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/nevada-commercial-and-residential-pools-contractor-a-10-books-allowed-into-exam-package/)
 
 ## How do the Commercial and Residential Pools Contractor (A-10) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/book-package/) | the reference books, new and unmarked | $3,045
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/exam-room-books/) | the references PSI allows in the exam room | $145
+[Book Package](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/nevada-commercial-and-residential-pools-contractor-a-10-exam-book-package/) | the reference books, new and unmarked | $3,045
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/nevada-commercial-and-residential-pools-contractor-a-10-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $145
 
 ## How does the Commercial and Residential Pools Contractor (A-10) exam work?
 

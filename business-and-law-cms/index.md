@@ -52,64 +52,64 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Contractor Management Survey Examination Exam - Online Practice Questions](https://passyournevadacontractorexam.com/business-and-law-cms/online-practice-exams/)
+[Nevada Contractor Management Survey Examination Exam - Online Practice Questions](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-examination-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235757412409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235757412409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-examination-exam-online-practice-questions/)
 
 Flash Cards
-[Nevada Business Contractor Management Survey Exam Prep Study Flash Cards](https://passyournevadacontractorexam.com/business-and-law-cms/flash-cards/)
+[Nevada Business Contractor Management Survey Exam Prep Study Flash Cards](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-business-contractor-management-survey-exam-prep-study-flash-cards/)
 
 Flash cards for the key numbers and rules.
 
 $65 (was $75) Save 13%
-[Buy now](https://1examprep.com/cart/46455194255417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/flash-cards/)
+[Buy now](https://1examprep.com/cart/46455194255417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-business-contractor-management-survey-exam-prep-study-flash-cards/)
 
 Code Book
-[Construction Business and Law Manual for Nevada](https://passyournevadacontractorexam.com/business-and-law-cms/code-book/)
+[Construction Business and Law Manual for Nevada](https://passyournevadacontractorexam.com/business-and-law-cms/construction-business-and-law-manual-for-nevada/)
 
 The printed reference book.
 
 $65 (was $72.25) Save 10%
-[Buy now](https://1examprep.com/cart/375643144218:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/code-book/)
+[Buy now](https://1examprep.com/cart/375643144218:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/construction-business-and-law-manual-for-nevada/)
 
 Book Package
-[Nevada Contractor Management Survey Exam Book Package](https://passyournevadacontractorexam.com/business-and-law-cms/book-package/)
+[Nevada Contractor Management Survey Exam Book Package](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $145 (was $245) Save 41%  to $275
-[Buy now](https://1examprep.com/cart/46386697830457:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/book-package/)
+[Buy now](https://1examprep.com/cart/46386697830457:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Contractor Management Survey Exam Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/business-and-law-cms/highlighted-tabbed/)
+[Nevada Contractor Management Survey Exam Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-exam-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $225 (was $425) Save 47%  to $475
-[Buy now](https://1examprep.com/cart/46468225663033:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46468225663033:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-exam-highlighted-and-tabbed-book-package/)
 
 Complete Pass Package
-[Nevada Business Contractor Management Survey Exam Complete Pass Package](https://passyournevadacontractorexam.com/business-and-law-cms/complete-pass-package/)
+[Nevada Business Contractor Management Survey Exam Complete Pass Package](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-business-contractor-management-survey-exam-complete-pass-package/)
 
 Everything for the Business and Law exam in one order.
 
 $425.99 (was $550) Save 23%
-[Buy now](https://1examprep.com/cart/45843008356409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/complete-pass-package/)
+[Buy now](https://1examprep.com/cart/45843008356409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-business-contractor-management-survey-exam-complete-pass-package/)
 
 ## How do the Business and Law Exam (CMS) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/business-and-law-cms/online-practice-exams/) | timed practice questions online | $79.99
-[Flash Cards](https://passyournevadacontractorexam.com/business-and-law-cms/flash-cards/) | flash cards for the key numbers and rules | $65
-[Code Book](https://passyournevadacontractorexam.com/business-and-law-cms/code-book/) | the printed reference book | $65
-[Book Package](https://passyournevadacontractorexam.com/business-and-law-cms/book-package/) | the reference books, new and unmarked | $145
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/business-and-law-cms/highlighted-tabbed/) | the reference books already highlighted and tabbed | $225
-[Complete Pass Package](https://passyournevadacontractorexam.com/business-and-law-cms/complete-pass-package/) | everything for the Business and Law exam in one order | $425.99
+[Online Practice Questions](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-examination-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Flash Cards](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-business-contractor-management-survey-exam-prep-study-flash-cards/) | flash cards for the key numbers and rules | $65
+[Code Book](https://passyournevadacontractorexam.com/business-and-law-cms/construction-business-and-law-manual-for-nevada/) | the printed reference book | $65
+[Book Package](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-exam-book-package/) | the reference books, new and unmarked | $145
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-exam-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $225
+[Complete Pass Package](https://passyournevadacontractorexam.com/business-and-law-cms/nevada-business-contractor-management-survey-exam-complete-pass-package/) | everything for the Business and Law exam in one order | $425.99
 
 ## How does the Business and Law Exam (CMS) exam work?
 

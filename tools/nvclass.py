@@ -202,18 +202,21 @@ def clean_title(t):
     t = re.sub(r"\bContractor Contractor\b", "Contractor", t)
     return re.sub(r"\s+", " ", t).strip()
 
+def title_slug(title, limit=200):
+    """The product's full title as a URL: 'Nevada Chilled and Hot Water Systems Contractor (C-21F) Exam Book Package'
+    becomes nevada-chilled-and-hot-water-systems-contractor-c-21f-exam-book-package. Marketing tails after a colon
+    ('Trusted by 50k Electricians') are dropped by clean_title; very long titles are cut at a word."""
+    sl = slugify(clean_title(title).replace("&", " and ").replace("+", " plus "))
+    if len(sl) > limit: sl = sl[:limit].rsplit("-", 1)[0]
+    return sl
+
 def assign(products):
-    """Give every product its class, package type and a short URL slug that is unique inside its class."""
+    """Give every product its class, package type and a URL slug made from its full title, unique inside its class."""
     used = {}
     out = []
     for p in sorted(products, key=lambda p: (p["title"], p["id"])):
         c = classify(p["title"], p.get("type", ""))
-        base = c["type"] if c["type"] != "other" else slugify(clean_title(p["title"]))[:50].rstrip("-")
-        extra = [c["year"]] if c["year"] else []
-        icc = re.search(r"ICC - ([A-Z]\d{2}(?:-N)?)", p["title"])
-        if icc and c["group"] == "electricians": extra.append(slugify(icc.group(1)))
-        if c["region"] == "Nationwide" and c["group"] in ("electricians", "plumbing", "building"): extra.append("any-state")
-        sl = "-".join([base] + extra)
+        sl = title_slug(p["title"])
         key = (c["cls"], sl); n = used.get(key, 0) + 1; used[key] = n
         if n > 1: sl = "%s-%d" % (sl, n)
         out.append(dict(p, **c, slug=sl, path="%s/%s/" % (c["cls"], sl), short=clean_title(p["title"])))

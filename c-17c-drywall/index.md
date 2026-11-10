@@ -48,130 +48,130 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Drywall Contractor (C-17C) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-17c-drywall/online-practice-exams/)
+[Nevada Drywall Contractor (C-17C) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235740078137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235740078137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Drywall Contractor (C-17C) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-17c-drywall/online-course/)
+[Nevada Drywall Contractor (C-17C) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266844676153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/online-course/)
+[Buy now](https://1examprep.com/cart/46266844676153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-online-exam-prep/)
 
 ## Drywall Contractor (C-17C) options: books for the exam room
 
 4 products of the 12 Drywall Contractor (C-17C) options, from $199.
 
 Book Package
-[Nevada Drywall Contractor (C-17C) Exam Book Package](https://passyournevadacontractorexam.com/c-17c-drywall/book-package/)
+[Nevada Drywall Contractor (C-17C) Exam Book Package](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $425 (was $525) Save 19%  to $675
-[Buy now](https://1examprep.com/cart/46371210821689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/book-package/)
+[Buy now](https://1examprep.com/cart/46371210821689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Drywall Contractor (C-17C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-books/)
+[Nevada Drywall Contractor (C-17C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
-[Buy now](https://1examprep.com/cart/46371213475897:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46371213475897:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Drywall Contractor (C-17C) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-17c-drywall/highlighted-tabbed/)
+[Nevada Drywall Contractor (C-17C) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $695 (was $895) Save 22%  to $990
-[Buy now](https://1examprep.com/cart/46371217735737:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46371217735737:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Drywall Contractor (C-17C) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-books-highlighted/)
+[Nevada Drywall Contractor (C-17C) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%  to $694
-[Buy now](https://1examprep.com/cart/46371221700665:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46371221700665:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Drywall Contractor (C-17C) options: live training and rentals
 
 5 products of the 12 Drywall Contractor (C-17C) options, from $595.
 
 Live Virtual Training
-[Nevada Drywall Contractor (C-17C) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-17c-drywall/live-training/)
+[Nevada Drywall Contractor (C-17C) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46254451884089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/live-training/)
+[Buy now](https://1examprep.com/cart/46254451884089:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Drywall Contractor (C-17C) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-17c-drywall/rental-package/)
+[Nevada Drywall Contractor (C-17C) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,285 (was $1,585) Save 19%  to $2,035
-[Buy now](https://1examprep.com/cart/46266845364281:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/rental-package/)
+[Buy now](https://1examprep.com/cart/46266845364281:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Drywall Contractor (C-17C) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-rental/)
+[Nevada Drywall Contractor (C-17C) Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $989 (was $1,289) Save 23%  to $1,739
-[Buy now](https://1examprep.com/cart/46266845724729:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46266845724729:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Drywall Contractor (C-17C) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-17c-drywall/ultimate-rental/)
+[Nevada Drywall Contractor (C-17C) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,710 (was $2,110) Save 19%
-[Buy now](https://1examprep.com/cart/45852259713081:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852259713081:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Drywall Contractor (C-17C) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-17c-drywall/ultimate-exam-room/)
+[Nevada Drywall Contractor (C-17C) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,414 (was $1,814) Save 22%
-[Buy now](https://1examprep.com/cart/45859481583673:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45859481583673:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Drywall Contractor (C-17C) option: all-inclusive and licensing services
 
 1 product of the 12 Drywall Contractor (C-17C) options, from $2,710.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Drywall Contractor (C-17C) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-17c-drywall/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Drywall Contractor (C-17C) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-17c-drywall/the-1-package-all-inclusive-nevada-drywall-contractor-c-17c-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,710 (was $3,210) Save 16%
-[Buy now](https://1examprep.com/cart/45859544006713:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859544006713:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17c-drywall/the-1-package-all-inclusive-nevada-drywall-contractor-c-17c-exam-licensing-and-business-setup-solution/)
 
 ## How do the Drywall Contractor (C-17C) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-17c-drywall/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-17c-drywall/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-17c-drywall/book-package/) | the reference books, new and unmarked | $425
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-17c-drywall/highlighted-tabbed/) | the reference books already highlighted and tabbed | $695
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-17c-drywall/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-17c-drywall/rental-package/) | rental books plus the online course | $1,285
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-17c-drywall/exam-room-rental/) | rental exam-room books plus the online course | $989
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-17c-drywall/ultimate-rental/) | tabbed rental books, course and live training | $1,710
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-17c-drywall/ultimate-exam-room/) | exam-room books, course and application help | $1,414
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-17c-drywall/the-1-package/) | exam prep, books, paperwork and business setup | $2,710
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-book-package/) | the reference books, new and unmarked | $425
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $695
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-and-courses-rental-package/) | rental books plus the online course | $1,285
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,710
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-17c-drywall/nevada-drywall-contractor-c-17c-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-17c-drywall/the-1-package-all-inclusive-nevada-drywall-contractor-c-17c-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,710
 
 ## How does the Drywall Contractor (C-17C) exam work?
 

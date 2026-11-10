@@ -52,82 +52,82 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Residential Remodeling Contractor (B-7) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/b-7-residential-remodeling/online-practice-exams/)
+[Nevada Residential Remodeling Contractor (B-7) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235694497849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235694497849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Residential Remodeling Contractor (B-7) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/b-7-residential-remodeling/online-course/)
+[Nevada Residential Remodeling Contractor (B-7) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266871185465:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/online-course/)
+[Buy now](https://1examprep.com/cart/46266871185465:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-online-exam-prep/)
 
 Book Package
-[Nevada Residential Remodeling Contractor (B-7) Exam Book Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/book-package/)
+[Nevada Residential Remodeling Contractor (B-7) Exam Book Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $845 (was $945) Save 11%  to $1,295
-[Buy now](https://1examprep.com/cart/46390548529209:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/book-package/)
+[Buy now](https://1examprep.com/cart/46390548529209:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Residential Remodeling Contractor (B-7) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/highlighted-tabbed/)
+[Nevada Residential Remodeling Contractor (B-7) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $1,295 (was $1,495) Save 13%  to $1,590
-[Buy now](https://1examprep.com/cart/46390553215033:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46390553215033:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-highlighted-and-tabbed-book-package/)
 
 Live Virtual Training
-[Nevada Residential Remodeling Contractor (B-7) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/b-7-residential-remodeling/live-training/)
+[Nevada Residential Remodeling Contractor (B-7) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46253165412409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/live-training/)
+[Buy now](https://1examprep.com/cart/46253165412409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Residential Remodeling Contractor (B-7) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/rental-package/)
+[Nevada Residential Remodeling Contractor (B-7) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,885 (was $2,185) Save 14%  to $2,635
-[Buy now](https://1examprep.com/cart/46266871316537:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/rental-package/)
+[Buy now](https://1examprep.com/cart/46266871316537:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-books-and-courses-rental-package/)
 
 Ultimate Rental Package
-[Nevada Residential Remodeling Contractor (B-7) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/b-7-residential-remodeling/ultimate-rental/)
+[Nevada Residential Remodeling Contractor (B-7) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $2,310 (was $2,710) Save 15%
-[Buy now](https://1examprep.com/cart/45852115566649:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852115566649:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-ultimate-exam-prep-rental/)
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Residential Remodeling Contractor (B-7) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/b-7-residential-remodeling/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Residential Remodeling Contractor (B-7) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/b-7-residential-remodeling/the-1-package-all-inclusive-nevada-residential-remodeling-contractor-b-7-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $3,310 (was $3,810) Save 13%
-[Buy now](https://1examprep.com/cart/45858444705849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/the-1-package/)
+[Buy now](https://1examprep.com/cart/45858444705849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-7-residential-remodeling/the-1-package-all-inclusive-nevada-residential-remodeling-contractor-b-7-exam-licensing-and-business-setup-solution/)
 
 ## How do the Residential Remodeling Contractor (B-7) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/b-7-residential-remodeling/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-7-residential-remodeling/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/book-package/) | the reference books, new and unmarked | $845
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/b-7-residential-remodeling/highlighted-tabbed/) | the reference books already highlighted and tabbed | $1,295
-[Live Virtual Training](https://passyournevadacontractorexam.com/b-7-residential-remodeling/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/b-7-residential-remodeling/rental-package/) | rental books plus the online course | $1,885
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/ultimate-rental/) | tabbed rental books, course and live training | $2,310
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/b-7-residential-remodeling/the-1-package/) | exam prep, books, paperwork and business setup | $3,310
+[Online Practice Questions](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-book-package/) | the reference books, new and unmarked | $845
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $1,295
+[Live Virtual Training](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-books-and-courses-rental-package/) | rental books plus the online course | $1,885
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $2,310
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/b-7-residential-remodeling/the-1-package-all-inclusive-nevada-residential-remodeling-contractor-b-7-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $3,310
 
 ## How does the Residential Remodeling Contractor (B-7) exam work?
 

@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Pipelines And Conduits For Gas Contractor (A-19B) Exam Book Package](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/book-package/)
+[Nevada Pipelines And Conduits For Gas Contractor (A-19B) Exam Book Package](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/nevada-pipelines-and-conduits-for-gas-contractor-a-19b-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $995 (was $1,095) Save 9%
-[Buy now](https://1examprep.com/cart/45739980226617:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/book-package/)
+[Buy now](https://1examprep.com/cart/45739980226617:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/nevada-pipelines-and-conduits-for-gas-contractor-a-19b-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Pipelines And Conduits For Gas Contractor (A-19B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/exam-room-books/)
+[Nevada Pipelines And Conduits For Gas Contractor (A-19B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/nevada-pipelines-and-conduits-for-gas-contractor-a-19b-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
-[Buy now](https://1examprep.com/cart/45815178526777:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815178526777:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/nevada-pipelines-and-conduits-for-gas-contractor-a-19b-books-allowed-into-exam-package/)
 
 ## How do the Pipelines and Conduits for Gas Contractor (A-19B) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/book-package/) | the reference books, new and unmarked | $995
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/exam-room-books/) | the references PSI allows in the exam room | $199
+[Book Package](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/nevada-pipelines-and-conduits-for-gas-contractor-a-19b-exam-book-package/) | the reference books, new and unmarked | $995
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/nevada-pipelines-and-conduits-for-gas-contractor-a-19b-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
 
 ## How does the Pipelines and Conduits for Gas Contractor (A-19B) exam work?
 

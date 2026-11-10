@@ -48,82 +48,82 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Painting And Decorating Contractor (C-4) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/online-practice-exams/)
+[Nevada Painting And Decorating Contractor (C-4) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235713634361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235713634361:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Painting and Decorating Contractor (C-4) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/online-course/)
+[Nevada Painting and Decorating Contractor (C-4) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $495
-[Buy now](https://1examprep.com/cart/46266865614905:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/online-course/)
+[Buy now](https://1examprep.com/cart/46266865614905:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-online-exam-prep/)
 
 Book Package
-[Nevada Painting and Decorating Contractor (C-4) Exam Book Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/book-package/)
+[Nevada Painting and Decorating Contractor (C-4) Exam Book Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $345 (was $445) Save 22%  to $645
-[Buy now](https://1examprep.com/cart/46386162237497:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/book-package/)
+[Buy now](https://1examprep.com/cart/46386162237497:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Painting and Decorating Contractor (C-4) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/highlighted-tabbed/)
+[Nevada Painting and Decorating Contractor (C-4) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $645 (was $845) Save 24%  to $940
-[Buy now](https://1examprep.com/cart/46386162761785:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46386162761785:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-highlighted-and-tabbed-book-package/)
 
 Live Virtual Training
-[Nevada Painting and Decorating Contractor (C-4) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/live-training/)
+[Nevada Painting and Decorating Contractor (C-4) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46253226426425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/live-training/)
+[Buy now](https://1examprep.com/cart/46253226426425:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Painting and Decorating Contractor (C-4) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/rental-package/)
+[Nevada Painting and Decorating Contractor (C-4) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,235 (was $1,535) Save 20%  to $1,885
-[Buy now](https://1examprep.com/cart/46266867187769:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/rental-package/)
+[Buy now](https://1examprep.com/cart/46266867187769:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-books-and-courses-rental-package/)
 
 Ultimate Rental Package
-[Nevada Painting and Decorating Contractor (C-4) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/ultimate-rental/)
+[Nevada Painting and Decorating Contractor (C-4) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,660 (was $2,060) Save 19%
-[Buy now](https://1examprep.com/cart/45881224724537:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45881224724537:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-ultimate-exam-prep-rental/)
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Painting and Decorating Contractor (C-4) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Painting and Decorating Contractor (C-4) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/the-1-package-all-inclusive-nevada-painting-and-decorating-contractor-c-4-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,660 (was $3,160) Save 16%
-[Buy now](https://1examprep.com/cart/45859386261561:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859386261561:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/the-1-package-all-inclusive-nevada-painting-and-decorating-contractor-c-4-exam-licensing-and-business-setup-solution/)
 
 ## How do the Painting and Decorating Contractor (C-4) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/book-package/) | the reference books, new and unmarked | $345
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/highlighted-tabbed/) | the reference books already highlighted and tabbed | $645
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/rental-package/) | rental books plus the online course | $1,235
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/ultimate-rental/) | tabbed rental books, course and live training | $1,660
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/the-1-package/) | exam prep, books, paperwork and business setup | $2,660
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-book-package/) | the reference books, new and unmarked | $345
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $645
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-books-and-courses-rental-package/) | rental books plus the online course | $1,235
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/nevada-painting-and-decorating-contractor-c-4-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,660
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/the-1-package-all-inclusive-nevada-painting-and-decorating-contractor-c-4-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,660
 
 ## How does the Painting and Decorating Contractor (C-4) exam work?
 

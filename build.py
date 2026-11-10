@@ -350,7 +350,11 @@ def home_main():
     finder = ('<form class="tx-finder" action="search/" method="get" data-finder><label><span>License type</span><select data-fg>%s</select></label>'
               '<label><span>Your license</span><select name="go" data-fl>%s</select></label><button class="btn btn-buy" type="submit">Show my prep</button></form>' % (gopts, lopts))
     by_path = {p["path"]: p for p in PRODUCTS}
-    pick = [by_path.get(x) for x in vacopy.COLLAGE] 
+    def _pick(x):
+        if isinstance(x, str): return by_path.get(x)
+        ps = [q for q in PRODUCTS if q["cls"] == x[0] and q["type"] == x[1] and q.get("image")]
+        return max(ps, key=lambda q: (q.get("year") or "", q["region"] == vaclass.STATE)) if ps else None
+    pick = [_pick(x) for x in vacopy.COLLAGE] 
     collage = '<div class="tx-collage">%s</div>' % "".join('<a href="%s"><img src="%s" alt="%s" loading="lazy" width="400" height="400"></a>' % (q["path"], esc(q["image"]), esc(q["short"])) for q in pick if q and q.get("image"))
     hero = ('<section class="hero" aria-labelledby="h1"><div class="wrap"><h1 id="h1">%s</h1><p class="lead" id="lead">%s</p>'
             '<form class="va-find" role="search" action="search/" method="get"><label for="findq" class="va-sr">Find your license</label><input id="findq" name="q" type="search" placeholder="%s" autocomplete="off"><button class="btn btn-buy" type="submit">Find it</button></form>%s%s'
@@ -913,10 +917,11 @@ open(os.path.join(ROOT, "manifest.webmanifest"), "w").write(json.dumps({"name": 
 # ---------- /designs/: compare the five designs (noindex) ----------
 dd = os.path.join(ROOT, "designs"); os.makedirs(dd, exist_ok=True)
 cards = []
+GALLERY_PRODUCT = next((q["path"] for q in PRODUCTS if q["cls"] == "b-2-residential-and-small-commercial" and q["type"] == "highlighted-tabbed"), PRODUCTS[0]["path"])
 for k in ["0"] + sorted(THEMES):
     t = THEMES.get(k, {"name": "Original", "about": "The template look: navy, orange and Archivo Black."})
-    shots = "".join('<a href="../%s?design=%s"><img src="%s-%s.png" alt="%s design, %s page" loading="lazy"></a>' % (u, k, k, pg, esc(t["name"]), lab) for pg, u, lab in (("home", "", "home"), ("class", "b-2-residential-and-small-commercial/", "license"), ("product", "b-2-residential-and-small-commercial/highlighted-tabbed/", "product")) if os.path.exists(os.path.join(dd, "%s-%s.png" % (k, pg))))
-    cards.append('<section class="dz"><div class="dz-head"><h2>%s. %s%s</h2><p>%s</p><p class="dz-links"><a class="btn btn-buy" href="../?design=%s">Browse the site in this design</a><a href="../b-2-residential-and-small-commercial/?design=%s">License page</a><a href="../b-2-residential-and-small-commercial/highlighted-tabbed/?design=%s">Product page</a></p></div><div class="dz-shots">%s</div></section>'
+    shots = "".join('<a href="../%s?design=%s"><img src="%s-%s.png" alt="%s design, %s page" loading="lazy"></a>' % (u, k, k, pg, esc(t["name"]), lab) for pg, u, lab in (("home", "", "home"), ("class", "b-2-residential-and-small-commercial/", "license"), ("product", GALLERY_PRODUCT, "product")) if os.path.exists(os.path.join(dd, "%s-%s.png" % (k, pg))))
+    cards.append('<section class="dz"><div class="dz-head"><h2>%s. %s%s</h2><p>%s</p><p class="dz-links"><a class="btn btn-buy" href="../?design=%s">Browse the site in this design</a><a href="../b-2-residential-and-small-commercial/?design=%s">License page</a><a href="../" + GALLERY_PRODUCT + "?design=%s">Product page</a></p></div><div class="dz-shots">%s</div></section>'
                  % (k, esc(t["name"]), " (live now)" if k == DESIGN else "", esc(t["about"]), k, k, k, shots))
 gal = """<!doctype html><html lang="en"><head><meta charset="utf-8"><meta name="viewport" content="width=device-width,initial-scale=1"><title>Design options | %s</title><meta name="robots" content="noindex, nofollow">
 <link rel="stylesheet" href="../shared/base.css"><link rel="stylesheet" href="../shared/store.css"><style>body{background:#eceef1}.dz{padding:2.5rem 0;border-bottom:1px solid #d5d8de}.dz-head{width:min(1180px,100%% - 2rem);margin:0 auto}.dz h2{font-size:1.8rem;text-transform:none;letter-spacing:-.01em}.dz p{color:#555;margin:.4rem 0}.dz-links{display:flex;gap:1rem;align-items:center;flex-wrap:wrap;margin-top:1rem!important}.dz-links a:not(.btn){color:#1b1f3b}

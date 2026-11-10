@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Excavating and Grading Contractor (A-7) Exam Book Package](https://passyournevadacontractorexam.com/a-7-excavating-and-grading/book-package/)
+[Nevada Excavating and Grading Contractor (A-7) Exam Book Package](https://passyournevadacontractorexam.com/a-7-excavating-and-grading/nevada-excavating-and-grading-contractor-a-7-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $895 (was $995) Save 10%
-[Buy now](https://1examprep.com/cart/45814506782777:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-7-excavating-and-grading/book-package/)
+[Buy now](https://1examprep.com/cart/45814506782777:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-7-excavating-and-grading/nevada-excavating-and-grading-contractor-a-7-exam-book-package/)
 
 ## How do the Excavating and Grading Contractor (A-7) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-7-excavating-and-grading/book-package/) | the reference books, new and unmarked | $895
+[Book Package](https://passyournevadacontractorexam.com/a-7-excavating-and-grading/nevada-excavating-and-grading-contractor-a-7-exam-book-package/) | the reference books, new and unmarked | $895
 
 ## How does the Excavating and Grading Contractor (A-7) exam work?
 

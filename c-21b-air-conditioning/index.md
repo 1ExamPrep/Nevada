@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Air Conditioning Contractor (C-21B) Exam Book Package](https://passyournevadacontractorexam.com/c-21b-air-conditioning/book-package/)
+[Nevada Air Conditioning Contractor (C-21B) Exam Book Package](https://passyournevadacontractorexam.com/c-21b-air-conditioning/nevada-air-conditioning-contractor-c-21b-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,545 (was $1,645) Save 6%
-[Buy now](https://1examprep.com/cart/45740475580473:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21b-air-conditioning/book-package/)
+[Buy now](https://1examprep.com/cart/45740475580473:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21b-air-conditioning/nevada-air-conditioning-contractor-c-21b-exam-book-package/)
 
 ## How do the Air Conditioning Contractor (C-21B) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-21b-air-conditioning/book-package/) | the reference books, new and unmarked | $1,545
+[Book Package](https://passyournevadacontractorexam.com/c-21b-air-conditioning/nevada-air-conditioning-contractor-c-21b-exam-book-package/) | the reference books, new and unmarked | $1,545
 
 ## How does the Air Conditioning Contractor (C-21B) exam work?
 

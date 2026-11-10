@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Repair Of Pools And Spas Contractor (A-10C) Exam Book Package](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/book-package/)
+[Nevada Repair Of Pools And Spas Contractor (A-10C) Exam Book Package](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/nevada-repair-of-pools-and-spas-contractor-a-10c-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $845 (was $945) Save 11%
-[Buy now](https://1examprep.com/cart/45739890802745:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/book-package/)
+[Buy now](https://1examprep.com/cart/45739890802745:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/nevada-repair-of-pools-and-spas-contractor-a-10c-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Repair Of Pools And Spas Contractor (A-10C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/exam-room-books/)
+[Nevada Repair Of Pools And Spas Contractor (A-10C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/nevada-repair-of-pools-and-spas-contractor-a-10c-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $145 (was $245) Save 41%
-[Buy now](https://1examprep.com/cart/45815130357817:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815130357817:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/nevada-repair-of-pools-and-spas-contractor-a-10c-books-allowed-into-exam-package/)
 
 ## How do the Repair of Pools and Spas Contractor (A-10C) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/book-package/) | the reference books, new and unmarked | $845
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/exam-room-books/) | the references PSI allows in the exam room | $145
+[Book Package](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/nevada-repair-of-pools-and-spas-contractor-a-10c-exam-book-package/) | the reference books, new and unmarked | $845
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/nevada-repair-of-pools-and-spas-contractor-a-10c-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $145
 
 ## How does the Repair of Pools and Spas Contractor (A-10C) exam work?
 

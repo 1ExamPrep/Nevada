@@ -48,55 +48,55 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Study Guide and Online Course
-[2026 Nevada Journeyman Plumber Exam Prep Study Guide & Online Course](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-online-course-2026/)
+[2026 Nevada Journeyman Plumber Exam Prep Study Guide & Online Course](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-prep-study-guide-and-online-course/)
 
 The study guide plus the online course.
 
 $119.99 (was $150) Save 20%
-[Buy now](https://1examprep.com/cart/45745074307129:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-online-course-2026/)
+[Buy now](https://1examprep.com/cart/45745074307129:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-prep-study-guide-and-online-course/)
 
 Study Guide
-[2026 Nevada Journeyman Plumber Exam Prep Study Guide](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-2026/)
+[2026 Nevada Journeyman Plumber Exam Prep Study Guide](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-prep-study-guide/)
 
 The printed study guide with practice exams.
 
 $59.99 (was $79) Save 24%
-[Buy now](https://1examprep.com/cart/45745099145273:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-2026/)
+[Buy now](https://1examprep.com/cart/45745099145273:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-prep-study-guide/)
 
 Complete Package
-[2026 Nevada Journeyman Plumber Exam Complete Books, Tabs & Course Package](https://passyournevadacontractorexam.com/journeyman-plumber/complete-package-2026/)
+[2026 Nevada Journeyman Plumber Exam Complete Books, Tabs & Course Package](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-complete-books-tabs-and-course-package/)
 
 The books, tabs and course together.
 
 $344.99 (was $400) Save 14%
-[Buy now](https://1examprep.com/cart/45745071816761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/complete-package-2026/)
+[Buy now](https://1examprep.com/cart/45745071816761:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-complete-books-tabs-and-course-package/)
 
 Online Exam Prep Course (any state)
-[Journeyman Plumber Exam Prep - Test Success Online Course](https://passyournevadacontractorexam.com/journeyman-plumber/online-course-2021-any-state/)
+[Journeyman Plumber Exam Prep - Test Success Online Course](https://passyournevadacontractorexam.com/journeyman-plumber/journeyman-plumber-exam-prep-test-success-online-course/)
 
 An online course with practice exams.
 
 $159.95 (was $179.95) Save 11%
-[Buy now](https://1examprep.com/cart/41207660085305:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/online-course-2021-any-state/)
+[Buy now](https://1examprep.com/cart/41207660085305:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/journeyman-plumber-exam-prep-test-success-online-course/)
 
 Study Guide (any state)
-[Journeyman Plumber Exam Study Guide](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-2021-any-state/)
+[Journeyman Plumber Exam Study Guide](https://passyournevadacontractorexam.com/journeyman-plumber/journeyman-plumber-exam-study-guide/)
 
 The printed study guide with practice exams.
 
 $59.95 (was $66.65) Save 10%
-[Buy now](https://1examprep.com/cart/41198318551097:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-2021-any-state/)
+[Buy now](https://1examprep.com/cart/41198318551097:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/journeyman-plumber/journeyman-plumber-exam-study-guide/)
 
 ## How do the Journeyman Plumber options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Study Guide and Online Course](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-online-course-2026/) | the study guide plus the online course | $119.99
-[Study Guide](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-2026/) | the printed study guide with practice exams | $59.99
-[Complete Package](https://passyournevadacontractorexam.com/journeyman-plumber/complete-package-2026/) | the books, tabs and course together | $344.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/journeyman-plumber/online-course-2021-any-state/) (any state) | an online course with practice exams | $159.95
-[Study Guide](https://passyournevadacontractorexam.com/journeyman-plumber/study-guide-2021-any-state/) (any state) | the printed study guide with practice exams | $59.95
+[Study Guide and Online Course](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-prep-study-guide-and-online-course/) | the study guide plus the online course | $119.99
+[Study Guide](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-prep-study-guide/) | the printed study guide with practice exams | $59.99
+[Complete Package](https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-complete-books-tabs-and-course-package/) | the books, tabs and course together | $344.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/journeyman-plumber/journeyman-plumber-exam-prep-test-success-online-course/) (any state) | an online course with practice exams | $159.95
+[Study Guide](https://passyournevadacontractorexam.com/journeyman-plumber/journeyman-plumber-exam-study-guide/) (any state) | the printed study guide with practice exams | $59.95
 
 ## How does the Journeyman Plumber exam work?
 

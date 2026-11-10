@@ -48,55 +48,55 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Exam Prep Course
-[Nevada Low Voltage Electrician (ICC - G21-N) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/low-voltage-electrician/online-course-g21-n/)
+[Nevada Low Voltage Electrician (ICC - G21-N) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $495
-[Buy now](https://1examprep.com/cart/46309782847545:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/online-course-g21-n/)
+[Buy now](https://1examprep.com/cart/46309782847545:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-online-exam-prep/)
 
 Book Package
-[Nevada Low Voltage Electrician (ICC - G21-N) Exam Book Package](https://passyournevadacontractorexam.com/low-voltage-electrician/book-package-g21-n/)
+[Nevada Low Voltage Electrician (ICC - G21-N) Exam Book Package](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $225 (was $325) Save 31%  to $425
-[Buy now](https://1examprep.com/cart/46378712399929:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/book-package-g21-n/)
+[Buy now](https://1examprep.com/cart/46378712399929:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Low Voltage Electrician (ICC - G21-N) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/low-voltage-electrician/highlighted-tabbed-g21-n/)
+[Nevada Low Voltage Electrician (ICC - G21-N) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $425 (was $625) Save 32%  to $720
-[Buy now](https://1examprep.com/cart/46378721607737:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/highlighted-tabbed-g21-n/)
+[Buy now](https://1examprep.com/cart/46378721607737:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-highlighted-and-tabbed-book-package/)
 
 Live Virtual Training
-[Nevada Low Voltage Electrician (ICC - G21-N) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/low-voltage-electrician/live-training-g21-n/)
+[Nevada Low Voltage Electrician (ICC - G21-N) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $495 (was $695) Save 29%
-[Buy now](https://1examprep.com/cart/46235510341689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/live-training-g21-n/)
+[Buy now](https://1examprep.com/cart/46235510341689:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Low Voltage Electrician (ICC - G21-N) Books & Courses Rental Package](https://passyournevadacontractorexam.com/low-voltage-electrician/rental-package-g21-n/)
+[Nevada Low Voltage Electrician (ICC - G21-N) Books & Courses Rental Package](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $720 (was $1,020) Save 29%  to $1,370
-[Buy now](https://1examprep.com/cart/46309786419257:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/rental-package-g21-n/)
+[Buy now](https://1examprep.com/cart/46309786419257:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-books-and-courses-rental-package/)
 
 ## How do the Low Voltage Electrician (ICC G21) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/low-voltage-electrician/online-course-g21-n/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/low-voltage-electrician/book-package-g21-n/) | the reference books, new and unmarked | $225
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/low-voltage-electrician/highlighted-tabbed-g21-n/) | the reference books already highlighted and tabbed | $425
-[Live Virtual Training](https://passyournevadacontractorexam.com/low-voltage-electrician/live-training-g21-n/) | live virtual classes plus self-study | $495
-[Books and Courses Rental](https://passyournevadacontractorexam.com/low-voltage-electrician/rental-package-g21-n/) | rental books plus the online course | $720
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-book-package/) | the reference books, new and unmarked | $225
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $425
+[Live Virtual Training](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $495
+[Books and Courses Rental](https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-books-and-courses-rental-package/) | rental books plus the online course | $720
 
 ## How does the Low Voltage Electrician (ICC G21) exam work?
 

@@ -48,73 +48,73 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Painting Contractor (C-4A) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-4a-painting/online-practice-exams/)
+[Nevada Painting Contractor (C-4A) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235722088505:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235722088505:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Painting Contractor (C-4A) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-4a-painting/online-course/)
+[Nevada Painting Contractor (C-4A) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%
-[Buy now](https://1examprep.com/cart/45851599503417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/online-course/)
+[Buy now](https://1examprep.com/cart/45851599503417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-online-exam-prep/)
 
 Book Package
-[Nevada Painting Contractor (C-4A) Exam Book Package](https://passyournevadacontractorexam.com/c-4a-painting/book-package/)
+[Nevada Painting Contractor (C-4A) Exam Book Package](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $245 (was $345) Save 29%  to $445
-[Buy now](https://1examprep.com/cart/46386061672505:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/book-package/)
+[Buy now](https://1examprep.com/cart/46386061672505:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-book-package/)
 
 Highlighted and Tabbed Books
-[Nevada Painting Contractor (C-4A) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-4a-painting/highlighted-tabbed/)
+[Nevada Painting Contractor (C-4A) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $445 (was $645) Save 31%  to $740
-[Buy now](https://1examprep.com/cart/46386105122873:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46386105122873:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-highlighted-and-tabbed-book-package/)
 
 Books and Courses Rental
-[Nevada Painting Contractor (C-4A) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-4a-painting/rental-package/)
+[Nevada Painting Contractor (C-4A) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,035 (was $1,335) Save 22%  to $1,485
-[Buy now](https://1examprep.com/cart/46386143920185:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/rental-package/)
+[Buy now](https://1examprep.com/cart/46386143920185:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-books-and-courses-rental-package/)
 
 Ultimate Rental Package
-[Nevada Painting Contractor (C-4A) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-4a-painting/ultimate-rental/)
+[Nevada Painting Contractor (C-4A) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,460 (was $1,860) Save 22%
-[Buy now](https://1examprep.com/cart/45852138471481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852138471481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-ultimate-exam-prep-rental/)
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Painting Contractor (C-4A) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-4a-painting/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Painting Contractor (C-4A) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-4a-painting/the-1-package-all-inclusive-nevada-painting-contractor-c-4a-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,460 (was $2,960) Save 17%
-[Buy now](https://1examprep.com/cart/45859397664825:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859397664825:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4a-painting/the-1-package-all-inclusive-nevada-painting-contractor-c-4a-exam-licensing-and-business-setup-solution/)
 
 ## How do the Painting Contractor (C-4A) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-4a-painting/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-4a-painting/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-4a-painting/book-package/) | the reference books, new and unmarked | $245
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-4a-painting/highlighted-tabbed/) | the reference books already highlighted and tabbed | $445
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-4a-painting/rental-package/) | rental books plus the online course | $1,035
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-4a-painting/ultimate-rental/) | tabbed rental books, course and live training | $1,460
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-4a-painting/the-1-package/) | exam prep, books, paperwork and business setup | $2,460
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-exam-book-package/) | the reference books, new and unmarked | $245
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $445
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-books-and-courses-rental-package/) | rental books plus the online course | $1,035
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-4a-painting/nevada-painting-contractor-c-4a-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,460
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-4a-painting/the-1-package-all-inclusive-nevada-painting-contractor-c-4a-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,460
 
 ## How does the Painting Contractor (C-4A) exam work?
 

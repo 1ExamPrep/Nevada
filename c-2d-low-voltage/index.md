@@ -48,130 +48,130 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Low Voltage Contractor (C-2D) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-2d-low-voltage/online-practice-exams/)
+[Nevada Low Voltage Contractor (C-2D) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235695972409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235695972409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Low Voltage Contractor (C-2D) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-2d-low-voltage/online-course/)
+[Nevada Low Voltage Contractor (C-2D) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $495
-[Buy now](https://1examprep.com/cart/46309776130105:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/online-course/)
+[Buy now](https://1examprep.com/cart/46309776130105:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-online-exam-prep/)
 
 ## Low Voltage Contractor (C-2D) options: books for the exam room
 
 4 products of the 12 Low Voltage Contractor (C-2D) options, from $199.
 
 Book Package
-[Nevada Low Voltage Contractor (C-2D) Exam Book Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/book-package/)
+[Nevada Low Voltage Contractor (C-2D) Exam Book Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $345 (was $445) Save 22%  to $545
-[Buy now](https://1examprep.com/cart/46375271628857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/book-package/)
+[Buy now](https://1examprep.com/cart/46375271628857:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Low Voltage Contractor (C-2D) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-books/)
+[Nevada Low Voltage Contractor (C-2D) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
-[Buy now](https://1examprep.com/cart/46375305871417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46375305871417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Low Voltage Contractor (C-2D) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/highlighted-tabbed/)
+[Nevada Low Voltage Contractor (C-2D) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $545 (was $745) Save 27%  to $840
-[Buy now](https://1examprep.com/cart/46375337787449:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46375337787449:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Low Voltage Contractor (C-2D) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-books-highlighted/)
+[Nevada Low Voltage Contractor (C-2D) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%  to $694
-[Buy now](https://1examprep.com/cart/46375375470649:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46375375470649:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Low Voltage Contractor (C-2D) options: live training and rentals
 
 5 products of the 12 Low Voltage Contractor (C-2D) options, from $495.
 
 Live Virtual Training
-[Nevada Low Voltage Contractor (C-2D) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-2d-low-voltage/live-training/)
+[Nevada Low Voltage Contractor (C-2D) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $495 (was $695) Save 29%
-[Buy now](https://1examprep.com/cart/46276391698489:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/live-training/)
+[Buy now](https://1examprep.com/cart/46276391698489:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Low Voltage Contractor (C-2D) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/rental-package/)
+[Nevada Low Voltage Contractor (C-2D) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,135 (was $1,435) Save 21%  to $1,785
-[Buy now](https://1examprep.com/cart/46309776359481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/rental-package/)
+[Buy now](https://1examprep.com/cart/46309776359481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Low Voltage Contractor (C-2D) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-rental/)
+[Nevada Low Voltage Contractor (C-2D) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $989 (was $1,289) Save 23%  to $1,639
-[Buy now](https://1examprep.com/cart/46309779341369:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46309779341369:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Low Voltage Contractor (C-2D) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-2d-low-voltage/ultimate-rental/)
+[Nevada Low Voltage Contractor (C-2D) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,560 (was $1,960) Save 20%
-[Buy now](https://1examprep.com/cart/45852123103289:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852123103289:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Low Voltage Contractor (C-2D) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/ultimate-exam-room/)
+[Nevada Low Voltage Contractor (C-2D) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,414 (was $1,814) Save 22%
-[Buy now](https://1examprep.com/cart/45858900443193:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45858900443193:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Low Voltage Contractor (C-2D) option: all-inclusive and licensing services
 
 1 product of the 12 Low Voltage Contractor (C-2D) options, from $2,560.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Low Voltage Contractor (C-2D) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-2d-low-voltage/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Low Voltage Contractor (C-2D) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-2d-low-voltage/the-1-package-all-inclusive-nevada-low-voltage-contractor-c-2d-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,560 (was $3,060) Save 16%
-[Buy now](https://1examprep.com/cart/45858578858041:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/the-1-package/)
+[Buy now](https://1examprep.com/cart/45858578858041:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2d-low-voltage/the-1-package-all-inclusive-nevada-low-voltage-contractor-c-2d-exam-licensing-and-business-setup-solution/)
 
 ## How do the Low Voltage Contractor (C-2D) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-2d-low-voltage/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2d-low-voltage/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/book-package/) | the reference books, new and unmarked | $345
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-2d-low-voltage/highlighted-tabbed/) | the reference books already highlighted and tabbed | $545
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-2d-low-voltage/live-training/) | live virtual classes plus self-study | $495
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-2d-low-voltage/rental-package/) | rental books plus the online course | $1,135
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-2d-low-voltage/exam-room-rental/) | rental exam-room books plus the online course | $989
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/ultimate-rental/) | tabbed rental books, course and live training | $1,560
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-2d-low-voltage/ultimate-exam-room/) | exam-room books, course and application help | $1,414
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-2d-low-voltage/the-1-package/) | exam prep, books, paperwork and business setup | $2,560
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-book-package/) | the reference books, new and unmarked | $345
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $545
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $495
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-and-courses-rental-package/) | rental books plus the online course | $1,135
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,560
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-2d-low-voltage/nevada-low-voltage-contractor-c-2d-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-2d-low-voltage/the-1-package-all-inclusive-nevada-low-voltage-contractor-c-2d-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,560
 
 ## How does the Low Voltage Contractor (C-2D) exam work?
 

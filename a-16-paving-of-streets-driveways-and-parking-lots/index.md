@@ -48,19 +48,19 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Paving of Streets, Driveways and Parking Lot Contractor (A-16) Exam Book Package](https://passyournevadacontractorexam.com/a-16-paving-of-streets-driveways-and-parking-lots/book-package/)
+[Nevada Paving of Streets, Driveways and Parking Lot Contractor (A-16) Exam Book Package](https://passyournevadacontractorexam.com/a-16-paving-of-streets-driveways-and-parking-lots/nevada-paving-of-streets-driveways-and-parking-lot-contractor-a-16-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $445 (was $545) Save 18%
-[Buy now](https://1examprep.com/cart/45814508027961:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-16-paving-of-streets-driveways-and-parking-lots/book-package/)
+[Buy now](https://1examprep.com/cart/45814508027961:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-16-paving-of-streets-driveways-and-parking-lots/nevada-paving-of-streets-driveways-and-parking-lot-contractor-a-16-exam-book-package/)
 
 ## How do the Paving of Streets, Driveways and Parking Lots Contractor (A-16) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-16-paving-of-streets-driveways-and-parking-lots/book-package/) | the reference books, new and unmarked | $445
+[Book Package](https://passyournevadacontractorexam.com/a-16-paving-of-streets-driveways-and-parking-lots/nevada-paving-of-streets-driveways-and-parking-lot-contractor-a-16-exam-book-package/) | the reference books, new and unmarked | $445
 
 ## How does the Paving of Streets, Driveways and Parking Lots Contractor (A-16) exam work?
 

@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Elevation And Conveyance Contractor (C-7) Exam Book Package](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/book-package/)
+[Nevada Elevation And Conveyance Contractor (C-7) Exam Book Package](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,045 (was $1,145) Save 9%
-[Buy now](https://1examprep.com/cart/45740268519481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/book-package/)
+[Buy now](https://1examprep.com/cart/45740268519481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Elevation And Conveyance Contractor (C-7) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/exam-room-books/)
+[Nevada Elevation And Conveyance Contractor (C-7) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $795 (was $895) Save 11%
-[Buy now](https://1examprep.com/cart/45815313432633:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815313432633:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-books-allowed-into-exam-package/)
 
 ## How do the Elevation and Conveyance Contractor (C-7) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/book-package/) | the reference books, new and unmarked | $1,045
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/exam-room-books/) | the references PSI allows in the exam room | $795
+[Book Package](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-exam-book-package/) | the reference books, new and unmarked | $1,045
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $795
 
 ## How does the Elevation and Conveyance Contractor (C-7) exam work?
 

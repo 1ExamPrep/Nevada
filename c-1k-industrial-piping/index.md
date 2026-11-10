@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Industrial Piping Contractor (C-1K) Exam Book Package](https://passyournevadacontractorexam.com/c-1k-industrial-piping/book-package/)
+[Nevada Industrial Piping Contractor (C-1K) Exam Book Package](https://passyournevadacontractorexam.com/c-1k-industrial-piping/nevada-industrial-piping-contractor-c-1k-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $2,145 (was $2,245) Save 4%
-[Buy now](https://1examprep.com/cart/45740144132153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1k-industrial-piping/book-package/)
+[Buy now](https://1examprep.com/cart/45740144132153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1k-industrial-piping/nevada-industrial-piping-contractor-c-1k-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Industrial Piping Contractor (C-1K) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1k-industrial-piping/exam-room-books/)
+[Nevada Industrial Piping Contractor (C-1K) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1k-industrial-piping/nevada-industrial-piping-contractor-c-1k-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $445 (was $545) Save 18%
-[Buy now](https://1examprep.com/cart/45815239508025:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1k-industrial-piping/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815239508025:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1k-industrial-piping/nevada-industrial-piping-contractor-c-1k-books-allowed-into-exam-package/)
 
 ## How do the Industrial Piping Contractor (C-1K) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-1k-industrial-piping/book-package/) | the reference books, new and unmarked | $2,145
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1k-industrial-piping/exam-room-books/) | the references PSI allows in the exam room | $445
+[Book Package](https://passyournevadacontractorexam.com/c-1k-industrial-piping/nevada-industrial-piping-contractor-c-1k-exam-book-package/) | the reference books, new and unmarked | $2,145
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1k-industrial-piping/nevada-industrial-piping-contractor-c-1k-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $445
 
 ## How does the Industrial Piping Contractor (C-1K) exam work?
 

@@ -48,130 +48,130 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada Sheet Metal Studs (C-4F) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/online-practice-exams/)
+[Nevada Sheet Metal Studs (C-4F) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-c-4f-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235726184505:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235726184505:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-c-4f-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada Sheet Metal Studs Contractor (C4-F) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/online-course/)
+[Nevada Sheet Metal Studs Contractor (C4-F) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266871480377:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/online-course/)
+[Buy now](https://1examprep.com/cart/46266871480377:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-exam-online-exam-prep/)
 
 ## Sheet Metal Studs Contractor (C-4F) options: books for the exam room
 
 4 products of the 12 Sheet Metal Studs Contractor (C-4F) options, from $199.
 
 Book Package
-[Nevada Sheet Metal Studs Contractor (C4-F) Exam Book Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/book-package/)
+[Nevada Sheet Metal Studs Contractor (C4-F) Exam Book Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $425 (was $525) Save 19%  to $695
-[Buy now](https://1examprep.com/cart/46392637685817:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/book-package/)
+[Buy now](https://1examprep.com/cart/46392637685817:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Sheet Metal Studs Contractor (C4-F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-books/)
+[Nevada Sheet Metal Studs Contractor (C4-F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
-[Buy now](https://1examprep.com/cart/46392644239417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46392644239417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada Sheet Metal Studs Contractor (C4-F) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/highlighted-tabbed/)
+[Nevada Sheet Metal Studs Contractor (C4-F) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $695 (was $895) Save 22%  to $990
-[Buy now](https://1examprep.com/cart/46392653348921:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46392653348921:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada Sheet Metal Studs Contractor (C4-F) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-books-highlighted/)
+[Nevada Sheet Metal Studs Contractor (C4-F) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $399 (was $599) Save 33%  to $694
-[Buy now](https://1examprep.com/cart/46392660000825:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46392660000825:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## Sheet Metal Studs Contractor (C-4F) options: live training and rentals
 
 5 products of the 12 Sheet Metal Studs Contractor (C-4F) options, from $595.
 
 Live Virtual Training
-[Nevada Sheet Metal Studs Contractor (C-4F) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/live-training/)
+[Nevada Sheet Metal Studs Contractor (C-4F) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c-4f-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46253235011641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/live-training/)
+[Buy now](https://1examprep.com/cart/46253235011641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c-4f-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada Sheet Metal Studs Contractor (C4-F) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/rental-package/)
+[Nevada Sheet Metal Studs Contractor (C4-F) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $1,285 (was $1,535) Save 16%  to $2,035
-[Buy now](https://1examprep.com/cart/46266871644217:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/rental-package/)
+[Buy now](https://1examprep.com/cart/46266871644217:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada Sheet Metal Studs Contractor (C4-F) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-rental/)
+[Nevada Sheet Metal Studs Contractor (C4-F) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $989 (was $1,289) Save 23%  to $1,739
-[Buy now](https://1examprep.com/cart/46266846773305:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46266846773305:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada Sheet Metal Studs Contractor (C4-F) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/ultimate-rental/)
+[Nevada Sheet Metal Studs Contractor (C4-F) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $1,710 (was $2,110) Save 19%
-[Buy now](https://1examprep.com/cart/45852145975353:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45852145975353:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada Sheet Metal Studs Contractor (C4-F) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/ultimate-exam-room/)
+[Nevada Sheet Metal Studs Contractor (C4-F) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $1,414 (was $1,814) Save 22%
-[Buy now](https://1examprep.com/cart/45859392159801:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45859392159801:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## Sheet Metal Studs Contractor (C-4F) option: all-inclusive and licensing services
 
 1 product of the 12 Sheet Metal Studs Contractor (C-4F) options, from $2,710.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada Sheet Metal Studs Contractor (C4-F) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/the-1-package/)
+[The 1 Package: All-Inclusive Nevada Sheet Metal Studs Contractor (C4-F) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/the-1-package-all-inclusive-nevada-sheet-metal-studs-contractor-c4-f-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $2,710 (was $3,210) Save 16%
-[Buy now](https://1examprep.com/cart/45859408445497:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/the-1-package/)
+[Buy now](https://1examprep.com/cart/45859408445497:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/the-1-package-all-inclusive-nevada-sheet-metal-studs-contractor-c4-f-exam-licensing-and-business-setup-solution/)
 
 ## How do the Sheet Metal Studs Contractor (C-4F) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/online-course/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/book-package/) | the reference books, new and unmarked | $425
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-books/) | the references PSI allows in the exam room | $199
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/highlighted-tabbed/) | the reference books already highlighted and tabbed | $695
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
-[Live Virtual Training](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/rental-package/) | rental books plus the online course | $1,285
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-rental/) | rental exam-room books plus the online course | $989
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/ultimate-rental/) | tabbed rental books, course and live training | $1,710
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/ultimate-exam-room/) | exam-room books, course and application help | $1,414
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/the-1-package/) | exam prep, books, paperwork and business setup | $2,710
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-c-4f-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-exam-book-package/) | the reference books, new and unmarked | $425
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $695
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $399
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c-4f-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-and-courses-rental-package/) | rental books plus the online course | $1,285
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $1,710
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/nevada-sheet-metal-studs-contractor-c4-f-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/the-1-package-all-inclusive-nevada-sheet-metal-studs-contractor-c4-f-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $2,710
 
 ## How does the Sheet Metal Studs Contractor (C-4F) exam work?
 

@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Residential Spas Contractor (A-10B) Exam Book Package](https://passyournevadacontractorexam.com/a-10b-residential-spas/book-package/)
+[Nevada Residential Spas Contractor (A-10B) Exam Book Package](https://passyournevadacontractorexam.com/a-10b-residential-spas/nevada-residential-spas-contractor-a-10b-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,095 (was $1,195) Save 8%
-[Buy now](https://1examprep.com/cart/45739880972345:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10b-residential-spas/book-package/)
+[Buy now](https://1examprep.com/cart/45739880972345:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10b-residential-spas/nevada-residential-spas-contractor-a-10b-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Residential Spas Contractor (A-10B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10b-residential-spas/exam-room-books/)
+[Nevada Residential Spas Contractor (A-10B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10b-residential-spas/nevada-residential-spas-contractor-a-10b-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $145 (was $245) Save 41%
-[Buy now](https://1examprep.com/cart/45815113449529:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10b-residential-spas/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815113449529:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10b-residential-spas/nevada-residential-spas-contractor-a-10b-books-allowed-into-exam-package/)
 
 ## How do the Residential Spas Contractor (A-10B) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-10b-residential-spas/book-package/) | the reference books, new and unmarked | $1,095
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-10b-residential-spas/exam-room-books/) | the references PSI allows in the exam room | $145
+[Book Package](https://passyournevadacontractorexam.com/a-10b-residential-spas/nevada-residential-spas-contractor-a-10b-exam-book-package/) | the reference books, new and unmarked | $1,095
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-10b-residential-spas/nevada-residential-spas-contractor-a-10b-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $145
 
 ## How does the Residential Spas Contractor (A-10B) exam work?
 

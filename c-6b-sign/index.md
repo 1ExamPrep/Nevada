@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Sign Contractor (C-6B) Exam Book Package](https://passyournevadacontractorexam.com/c-6b-sign/book-package/)
+[Nevada Sign Contractor (C-6B) Exam Book Package](https://passyournevadacontractorexam.com/c-6b-sign/nevada-sign-contractor-c-6b-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $595 (was $695) Save 14%
-[Buy now](https://1examprep.com/cart/45740262162489:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-6b-sign/book-package/)
+[Buy now](https://1examprep.com/cart/45740262162489:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-6b-sign/nevada-sign-contractor-c-6b-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Sign Contractor (C-6B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-6b-sign/exam-room-books/)
+[Nevada Sign Contractor (C-6B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-6b-sign/nevada-sign-contractor-c-6b-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $345 (was $445) Save 22%
-[Buy now](https://1examprep.com/cart/45815313301561:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-6b-sign/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815313301561:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-6b-sign/nevada-sign-contractor-c-6b-books-allowed-into-exam-package/)
 
 ## How do the Sign Contractor (C-6B) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-6b-sign/book-package/) | the reference books, new and unmarked | $595
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-6b-sign/exam-room-books/) | the references PSI allows in the exam room | $345
+[Book Package](https://passyournevadacontractorexam.com/c-6b-sign/nevada-sign-contractor-c-6b-exam-book-package/) | the reference books, new and unmarked | $595
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-6b-sign/nevada-sign-contractor-c-6b-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $345
 
 ## How does the Sign Contractor (C-6B) exam work?
 

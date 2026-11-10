@@ -48,139 +48,139 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Online Practice Questions
-[Nevada General Building Contractor (B) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/b-general-building/online-practice-exams/)
+[Nevada General Building Contractor (B) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-online-practice-questions/)
 
 Timed practice questions online.
 
 $79.99 (was $120) Save 33%
-[Buy now](https://1examprep.com/cart/46235687878713:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/online-practice-exams/)
+[Buy now](https://1examprep.com/cart/46235687878713:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-online-practice-questions/)
 
 Online Exam Prep Course
-[Nevada B - General Building Contractor - Online Course Exam Prep Course](https://passyournevadacontractorexam.com/b-general-building/online-course/)
+[Nevada B - General Building Contractor - Online Course Exam Prep Course](https://passyournevadacontractorexam.com/b-general-building/nevada-b-general-building-contractor-online-course-exam-prep-course/)
 
 An online course with practice exams.
 
 $250 (was $279) Save 10%
-[Buy now](https://1examprep.com/cart/375617421338:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/online-course/)
+[Buy now](https://1examprep.com/cart/375617421338:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-b-general-building-contractor-online-course-exam-prep-course/)
 
 Online Exam Prep Course
-[Nevada General Building Contractor (B) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/b-general-building/online-course-2/)
+[Nevada General Building Contractor (B) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-online-exam-prep/)
 
 An online course with practice exams.
 
 $295 (was $395) Save 25%  to $595
-[Buy now](https://1examprep.com/cart/46266854998073:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/online-course-2/)
+[Buy now](https://1examprep.com/cart/46266854998073:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-online-exam-prep/)
 
 ## General Building Contractor (B) options: books for the exam room
 
 4 products of the 13 General Building Contractor (B) options, from $695.
 
 Book Package
-[Nevada General Building Contractor (B) Exam Book Package](https://passyournevadacontractorexam.com/b-general-building/book-package/)
+[Nevada General Building Contractor (B) Exam Book Package](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,395 (was $1,495) Save 7%  to $1,995
-[Buy now](https://1examprep.com/cart/46374462193721:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/book-package/)
+[Buy now](https://1examprep.com/cart/46374462193721:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada General Building Contractor (B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-general-building/exam-room-books/)
+[Nevada General Building Contractor (B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $695 (was $795) Save 13%  to $995
-[Buy now](https://1examprep.com/cart/46374467305529:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/exam-room-books/)
+[Buy now](https://1examprep.com/cart/46374467305529:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-allowed-into-exam-package/)
 
 Highlighted and Tabbed Books
-[Nevada General Building Contractor (B) Exam Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/b-general-building/highlighted-tabbed/)
+[Nevada General Building Contractor (B) Exam Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-highlighted-and-tabbed-book-package/)
 
 The reference books already highlighted and tabbed.
 
 $1,995 (was $2,195) Save 9%  to $2,290
-[Buy now](https://1examprep.com/cart/46374498172985:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/highlighted-tabbed/)
+[Buy now](https://1examprep.com/cart/46374498172985:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-highlighted-and-tabbed-book-package/)
 
 Highlighted and Tabbed Exam-Room Books
-[Nevada General Building Contractor (B) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-general-building/exam-room-books-highlighted/)
+[Nevada General Building Contractor (B) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 Exam-room references, highlighted and tabbed.
 
 $995 (was $1,195) Save 17%  to $1,290
-[Buy now](https://1examprep.com/cart/46374544310329:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/exam-room-books-highlighted/)
+[Buy now](https://1examprep.com/cart/46374544310329:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-highlighted-and-tabbed-books-allowed-into-exam-package/)
 
 ## General Building Contractor (B) options: live training and rentals
 
 5 products of the 13 General Building Contractor (B) options, from $595.
 
 Live Virtual Training
-[Nevada General Building Contractor (B) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/b-general-building/live-training/)
+[Nevada General Building Contractor (B) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-prep-live-virtual-plus-self-study-training/)
 
 Live virtual classes plus self-study.
 
 $595 (was $795) Save 25%
-[Buy now](https://1examprep.com/cart/46252747391033:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/live-training/)
+[Buy now](https://1examprep.com/cart/46252747391033:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-prep-live-virtual-plus-self-study-training/)
 
 Books and Courses Rental
-[Nevada General Building Contractor (B) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/b-general-building/rental-package/)
+[Nevada General Building Contractor (B) - Books & Courses Rental Package](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-and-courses-rental-package/)
 
 Rental books plus the online course.
 
 $2,585 (was $2,885) Save 10%  to $3,335
-[Buy now](https://1examprep.com/cart/46266856538169:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/rental-package/)
+[Buy now](https://1examprep.com/cart/46266856538169:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-and-courses-rental-package/)
 
 Exam-Room Books and Course Rental
-[Nevada General Building Contractor (B) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/b-general-building/exam-room-rental/)
+[Nevada General Building Contractor (B) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-and-course-rental-exam-room-approved/)
 
 Rental exam-room books plus the online course.
 
 $1,585 (was $1,885) Save 16%  to $2,335
-[Buy now](https://1examprep.com/cart/46266856636473:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/exam-room-rental/)
+[Buy now](https://1examprep.com/cart/46266856636473:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-and-course-rental-exam-room-approved/)
 
 Ultimate Rental Package
-[Nevada General Building Contractor (B) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/b-general-building/ultimate-rental/)
+[Nevada General Building Contractor (B) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-ultimate-exam-prep-rental/)
 
 Tabbed rental books, course and live training.
 
 $3,010 (was $3,410) Save 12%
-[Buy now](https://1examprep.com/cart/45851901034553:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/ultimate-rental/)
+[Buy now](https://1examprep.com/cart/45851901034553:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-ultimate-exam-prep-rental/)
 
 Ultimate Exam-Room Books, Course and Application
-[Nevada General Building Contractor (B) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/b-general-building/ultimate-exam-room/)
+[Nevada General Building Contractor (B) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 Exam-room books, course and application help.
 
 $2,010 (was $2,410) Save 17%
-[Buy now](https://1examprep.com/cart/45858829729849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/ultimate-exam-room/)
+[Buy now](https://1examprep.com/cart/45858829729849:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-ultimate-books-exam-room-approved-plus-course-plus-application-package/)
 
 ## General Building Contractor (B) option: all-inclusive and licensing services
 
 1 product of the 13 General Building Contractor (B) options, from $4,010.
 
 The 1 Package (all-inclusive)
-[The 1 Package: All-Inclusive Nevada General Building Contractor (B) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/b-general-building/the-1-package/)
+[The 1 Package: All-Inclusive Nevada General Building Contractor (B) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/b-general-building/the-1-package-all-inclusive-nevada-general-building-contractor-b-exam-licensing-and-business-setup-solution/)
 
 Exam prep, books, paperwork and business setup.
 
 $4,010 (was $4,510) Save 11%
-[Buy now](https://1examprep.com/cart/45858257567801:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/the-1-package/)
+[Buy now](https://1examprep.com/cart/45858257567801:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/the-1-package-all-inclusive-nevada-general-building-contractor-b-exam-licensing-and-business-setup-solution/)
 
 ## How do the General Building Contractor (B) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Online Practice Questions](https://passyournevadacontractorexam.com/b-general-building/online-practice-exams/) | timed practice questions online | $79.99
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-general-building/online-course/) | an online course with practice exams | $250
-[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-general-building/online-course-2/) | an online course with practice exams | $295
-[Book Package](https://passyournevadacontractorexam.com/b-general-building/book-package/) | the reference books, new and unmarked | $1,395
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/b-general-building/exam-room-books/) | the references PSI allows in the exam room | $695
-[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/b-general-building/highlighted-tabbed/) | the reference books already highlighted and tabbed | $1,995
-[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/b-general-building/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $995
-[Live Virtual Training](https://passyournevadacontractorexam.com/b-general-building/live-training/) | live virtual classes plus self-study | $595
-[Books and Courses Rental](https://passyournevadacontractorexam.com/b-general-building/rental-package/) | rental books plus the online course | $2,585
-[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/b-general-building/exam-room-rental/) | rental exam-room books plus the online course | $1,585
-[Ultimate Rental Package](https://passyournevadacontractorexam.com/b-general-building/ultimate-rental/) | tabbed rental books, course and live training | $3,010
-[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/b-general-building/ultimate-exam-room/) | exam-room books, course and application help | $2,010
-[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/b-general-building/the-1-package/) | exam prep, books, paperwork and business setup | $4,010
+[Online Practice Questions](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-online-practice-questions/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-general-building/nevada-b-general-building-contractor-online-course-exam-prep-course/) | an online course with practice exams | $250
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-online-exam-prep/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-book-package/) | the reference books, new and unmarked | $1,395
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $695
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-highlighted-and-tabbed-book-package/) | the reference books already highlighted and tabbed | $1,995
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-highlighted-and-tabbed-books-allowed-into-exam-package/) | exam-room references, highlighted and tabbed | $995
+[Live Virtual Training](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-prep-live-virtual-plus-self-study-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-and-courses-rental-package/) | rental books plus the online course | $2,585
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-books-and-course-rental-exam-room-approved/) | rental exam-room books plus the online course | $1,585
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-ultimate-exam-prep-rental/) | tabbed rental books, course and live training | $3,010
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-ultimate-books-exam-room-approved-plus-course-plus-application-package/) | exam-room books, course and application help | $2,010
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/b-general-building/the-1-package-all-inclusive-nevada-general-building-contractor-b-exam-licensing-and-business-setup-solution/) | exam prep, books, paperwork and business setup | $4,010
 
 ## How does the General Building Contractor (B) exam work?
 

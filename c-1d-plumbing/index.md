@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Plumbing Contractor (C-1D) Exam Book Package](https://passyournevadacontractorexam.com/c-1d-plumbing/book-package/)
+[Nevada Plumbing Contractor (C-1D) Exam Book Package](https://passyournevadacontractorexam.com/c-1d-plumbing/nevada-plumbing-contractor-c-1d-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $1,545 (was $1,645) Save 6%
-[Buy now](https://1examprep.com/cart/45740030787641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1d-plumbing/book-package/)
+[Buy now](https://1examprep.com/cart/45740030787641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1d-plumbing/nevada-plumbing-contractor-c-1d-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Plumbing Contractor (C-1D) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1d-plumbing/exam-room-books/)
+[Nevada Plumbing Contractor (C-1D) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1d-plumbing/nevada-plumbing-contractor-c-1d-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $945 (was $1,045) Save 10%
-[Buy now](https://1examprep.com/cart/45815190519865:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1d-plumbing/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815190519865:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1d-plumbing/nevada-plumbing-contractor-c-1d-books-allowed-into-exam-package/)
 
 ## How do the Plumbing Contractor (C-1D) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-1d-plumbing/book-package/) | the reference books, new and unmarked | $1,545
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1d-plumbing/exam-room-books/) | the references PSI allows in the exam room | $945
+[Book Package](https://passyournevadacontractorexam.com/c-1d-plumbing/nevada-plumbing-contractor-c-1d-exam-book-package/) | the reference books, new and unmarked | $1,545
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-1d-plumbing/nevada-plumbing-contractor-c-1d-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $945
 
 ## How does the Plumbing Contractor (C-1D) exam work?
 

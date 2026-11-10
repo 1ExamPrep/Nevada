@@ -48,28 +48,28 @@ Updated November 10, 2026 · prices checked against the 1 Exam Prep store
 Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
 
 Book Package
-[Nevada Pool Alteration And Repair Contractor (A-10E) Exam Book Package](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/book-package/)
+[Nevada Pool Alteration And Repair Contractor (A-10E) Exam Book Package](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/nevada-pool-alteration-and-repair-contractor-a-10e-exam-book-package/)
 
 The reference books, new and unmarked.
 
 $845 (was $945) Save 11%
-[Buy now](https://1examprep.com/cart/45739897389113:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/book-package/)
+[Buy now](https://1examprep.com/cart/45739897389113:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/nevada-pool-alteration-and-repair-contractor-a-10e-exam-book-package/)
 
 Books Allowed in the Exam
-[Nevada Pool Alteration And Repair Contractor (A-10E) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/exam-room-books/)
+[Nevada Pool Alteration And Repair Contractor (A-10E) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/nevada-pool-alteration-and-repair-contractor-a-10e-books-allowed-into-exam-package/)
 
 The references PSI allows in the exam room.
 
 $145 (was $245) Save 41%
-[Buy now](https://1examprep.com/cart/45815162077241:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/exam-room-books/)
+[Buy now](https://1examprep.com/cart/45815162077241:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/nevada-pool-alteration-and-repair-contractor-a-10e-books-allowed-into-exam-package/)
 
 ## How do the Pool Alteration and Repair Contractor (A-10E) options compare?
 
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/book-package/) | the reference books, new and unmarked | $845
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/exam-room-books/) | the references PSI allows in the exam room | $145
+[Book Package](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/nevada-pool-alteration-and-repair-contractor-a-10e-exam-book-package/) | the reference books, new and unmarked | $845
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/nevada-pool-alteration-and-repair-contractor-a-10e-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $145
 
 ## How does the Pool Alteration and Repair Contractor (A-10E) exam work?
 
