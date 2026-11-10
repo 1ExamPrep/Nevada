@@ -10,7 +10,7 @@ description: Residential Electrician (ICC G18) exam prep for Nevada: 15 options 
 
 # Residential Electrician (ICC G18) exam prep
 
-The residential electrician card covers residential wiring in Las Vegas, Clark County and Reno. It comes from Electrical Safety Professionals after the ICC G18 Residential Electrician exam. Here are 15 packages, from $225 to $1,090, each with one-click checkout. Compare what each one includes, see how the exam works and find the answers to the questions people ask most.
+The residential electrician card covers residential wiring in Las Vegas, Clark County and Reno. It comes from Electrical Safety Professionals after the ICC G18 Residential Electrician exam. Here are 15 packages, from $225 to $1,090, each with one-click checkout. Compare what each one includes, see how the process works and find the answers to the questions people ask most.
 See the packages
 PackagesCompareHow the exam worksFAQSources
 

@@ -10,7 +10,7 @@ description: NASCLA Electrical Exams exam prep for Nevada: 3 options from $350 t
 
 # NASCLA Electrical Exams exam prep
 
-The NASCLA electrical exams are national exams for journeyman, residential and master unlimited electrical licenses, used by the states that accept them. Here are 3 packages, from $350 to $395, each with one-click checkout. Compare what each one includes, see how the exam works and find the answers to the questions people ask most.
+The NASCLA electrical exams are national exams for journeyman, residential and master unlimited electrical licenses, used by the states that accept them. Here are 3 packages, from $350 to $395, each with one-click checkout. Compare what each one includes, see how the process works and find the answers to the questions people ask most.
 See the packages
 PackagesCompareHow the exam worksFAQSources
 

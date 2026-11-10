@@ -267,6 +267,10 @@ def assets_head(rel):
 def scope(c):
     if c["group"] == "officials": return vacopy.OFFICIAL_SCOPE.format(name=c["name"])
     return vacopy.SCOPE.get(c["slug"], "%s exam prep for the Nevada license." % c["name"])
+def prep(c, cap=False):
+    """'B-2 ... exam prep' for a license; services that are not an exam (vacopy.NOT_EXAMS) keep their own name."""
+    if c["slug"] in getattr(vacopy, "NOT_EXAMS", ()): return c["name"]
+    return c["name"] + (" Exam Prep" if cap else " exam prep")
 def count_words(s): return len(re.sub(r"<[^>]+>", " ", s).split())
 def plural(n, w): return "%d %s%s" % (n, w, "" if n == 1 else "s")
 def cheapest(c): return min(c["products"], key=lambda p: float(p["price"]))
@@ -398,12 +402,12 @@ urls.append(u)
 def class_page(c):
     s, n, ps = c["slug"], c["name"], c["products"]
     lead = "%s Here are %s, from %s to %s, each with one-click checkout." % (scope(c), plural(len(ps), "package") if len(ps) > 1 else "the one package", money(c["lo"]), money(c["hi"]))
-    if count_words(lead) < 40: lead += " Compare what each one includes, see how the exam works and find the answers to the questions people ask most."
+    if count_words(lead) < 40: lead += " Compare what each one includes, see how the process works and find the answers to the questions people ask most."
     grp = c["group"]
     hero = ('<section class="hero hero--class" aria-labelledby="h1"><div class="wrap"><nav class="crumb" aria-label="Breadcrumb"><a href="../">All licenses</a><span>/</span><a href="../#%s">%s</a><span>/</span>%s</nav>'
-            '<h1 id="h1">%s exam prep</h1><p class="lead" id="lead">%s</p><a class="btn btn-buy" href="#packs">See the %s</a></div></section>'
-            % (grp, esc(GROUP_NAME[grp]), esc(n), esc(n), esc(lead), "packages" if len(ps) > 1 else "package"))
-    tk = takeaways_html(["%s for the %s exam, from %s to %s." % (plural(len(ps), "option"), n, money(c["lo"]), money(c["hi"])),
+            '<h1 id="h1">%s</h1><p class="lead" id="lead">%s</p><a class="btn btn-buy" href="#packs">See the %s</a></div></section>'
+            % (grp, esc(GROUP_NAME[grp]), esc(n), esc(prep(c)), esc(lead), "packages" if len(ps) > 1 else "package"))
+    tk = takeaways_html(["%s for %s, from %s to %s." % (plural(len(ps), "option"), n if c["slug"] in getattr(vacopy, "NOT_EXAMS", ()) else "the %s exam" % n, money(c["lo"]), money(c["hi"])),
                          facts_for(c)[0], facts_for(c)[1],
                          "Buy now goes straight to secure checkout; books ship from %s and online courses arrive by email." % FUL["name"]])
     intro = '<p class="sub-h">Buy now adds the item to your cart and opens secure checkout at %s. Details shows the full description first.</p>' % esc(FUL["name"])
@@ -444,9 +448,9 @@ def class_page(c):
     qf = ('<aside class="tx-qf" aria-label="Quick facts"><p class="tx-qf-h">Quick facts</p><dl>%s</dl><a class="btn btn-buy" href="#packs">See the %s</a><p class="tx-qf-call">Not sure which one? Call <a href="tel:%s">%s</a></p></aside>'
           % ("".join("<div><dt>%s</dt><dd>%s</dd></div>" % (esc(a), esc(b)) for a, b in qf_rows), "packages" if len(ps) > 1 else "package", CFG["phoneTel"], esc(CFG["phone"])))
     main = hero + tabs + qf + tk + packs + compare + how + faq + related + sources_html(grp)
-    title = fit_title("Nevada %s Exam Prep" % n, "%s Exam Prep (Nevada)" % n, "%s Exam Prep" % n, "Nevada %s" % n)
-    desc = "%s exam prep for Nevada: %s from %s to %s, including %s. One-click checkout." % (n, plural(len(ps), "option"), money(c["lo"]), money(c["hi"]), ", ".join(sorted({p["typeName"].lower() for p in ps})[:3]))
-    lds = [{"@context": "https://schema.org", "@type": "CollectionPage", "name": "%s exam prep" % n, "url": absurl(s + "/"), "dateModified": TODAY, "publisher": publisher_ld(),
+    title = fit_title("Nevada %s" % prep(c, True), "%s (Nevada)" % prep(c, True), prep(c, True), "Nevada %s" % n)
+    desc = "%s for Nevada: %s from %s to %s, including %s. One-click checkout." % (prep(c), plural(len(ps), "option"), money(c["lo"]), money(c["hi"]), ", ".join(sorted({p["typeName"].lower() for p in ps})[:3]))
+    lds = [{"@context": "https://schema.org", "@type": "CollectionPage", "name": prep(c), "url": absurl(s + "/"), "dateModified": TODAY, "publisher": publisher_ld(),
             "mainEntity": {"@type": "ItemList", "numberOfItems": len(ps), "itemListElement": [{"@type": "ListItem", "position": i + 1, "url": absurl(p["path"]), "name": p["short"]} for i, p in enumerate(ps)]}},
            faq_ld(pairs), crumbs_ld([("All licenses", ""), (n, s + "/")])]
     sticky = '<div class="stickybar"><div><strong>%s</strong><small>%s from %s</small></div><a class="btn btn-buy" href="#packs">See options</a></div>' % (esc(n), plural(len(ps), "option"), money(c["lo"]))

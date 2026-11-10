@@ -210,7 +210,7 @@ The Business and Law Exam (CMS) side of a Nevada license is the same for every c
 - The CMS has 60 scored questions in 120 minutes, plus 3 unscored ones, and you need 45 right (75 percent) to pass.
 - PSI charges $95 for one exam portion and $140 for a trade exam and the CMS together.
 - The Business and Law exam (CMS) is required for every Nevada contractor license, whatever the classification.
-- It is open book: the only reference allowed is the Construction Business and Law Manual for Nevada.
+- The CMS is open book: the only reference allowed is the Construction Business and Law Manual for Nevada.
 - The CMS has 60 scored questions in 120 minutes, and 45 right (75 percent) is a pass.
 - The NSCB application fee is $300, and the Board sets your bond and monetary limit when it approves the license.
 

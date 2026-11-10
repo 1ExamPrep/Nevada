@@ -10,7 +10,7 @@ description: Clark County Structural Welding Special Inspector (S2CY) exam prep 
 
 # Clark County Structural Welding Special Inspector (S2CY) exam prep
 
-The Clark County Structural Welding special inspector module is an ICC exam (S2CY in the ICC catalog) for inspectors who check structural welding on Clark County projects. Here are 2 packages, from $295 to $2,745, each with one-click checkout. Compare what each one includes, see how the exam works and find the answers to the questions people ask most.
+The Clark County Structural Welding special inspector module is an ICC exam (S2CY in the ICC catalog) for inspectors who check structural welding on Clark County projects. Here are 2 packages, from $295 to $2,745, each with one-click checkout. Compare what each one includes, see how the process works and find the answers to the questions people ask most.
 See the packages
 PackagesCompareHow the exam worksFAQSources
 

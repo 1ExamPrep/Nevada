@@ -10,7 +10,7 @@ description: Code Books, Courses and Practice Tests exam prep for Nevada: 6 opti
 
 # Code Books, Courses and Practice Tests exam prep
 
-Code courses and practice tests cover the International Building and Plumbing Codes, the National Electrical Code, older electrician question banks and OSHA construction rules. Here are 6 packages, from $59.95 to $395, each with one-click checkout. Compare what each one includes, see how the exam works and find the answers to the questions people ask most.
+Code courses and practice tests cover the International Building and Plumbing Codes, the National Electrical Code, older electrician question banks and OSHA construction rules. Here are 6 packages, from $59.95 to $395, each with one-click checkout. Compare what each one includes, see how the process works and find the answers to the questions people ask most.
 See the packages
 PackagesCompareHow the exam worksFAQSources
 

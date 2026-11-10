@@ -10,7 +10,7 @@ description: Low Voltage Electrician (ICC G21) exam prep for Nevada: 5 options f
 
 # Low Voltage Electrician (ICC G21) exam prep
 
-The low voltage electrician card is issued by Electrical Safety Professionals after the ICC G21 Low-Voltage Electrician exam, for electricians who work on low voltage systems. Here are 5 packages, from $225 to $720, each with one-click checkout. Compare what each one includes, see how the exam works and find the answers to the questions people ask most.
+The low voltage electrician card is issued by Electrical Safety Professionals after the ICC G21 Low-Voltage Electrician exam, for electricians who work on low voltage systems. Here are 5 packages, from $225 to $720, each with one-click checkout. Compare what each one includes, see how the process works and find the answers to the questions people ask most.
 See the packages
 PackagesCompareHow the exam worksFAQSources
 

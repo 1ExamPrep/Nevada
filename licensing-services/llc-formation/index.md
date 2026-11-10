@@ -221,7 +221,7 @@ No. Approval is controlled by the Nevada Secretary of State. This service helps 
 The NSCB License Application and Business Setup Services side of a Nevada license is the same for every classification: the NSCB application, the Board's review of experience and finances, and the open-book CMS at PSI.
 
 - The Business and Law exam (CMS) is required for every Nevada contractor license, whatever the classification.
-- It is open book: the only reference allowed is the Construction Business and Law Manual for Nevada.
+- The CMS is open book: the only reference allowed is the Construction Business and Law Manual for Nevada.
 - The CMS has 60 scored questions in 120 minutes, and 45 right (75 percent) is a pass.
 - The NSCB application fee is $300, and the Board sets your bond and monetary limit when it approves the license.
 
