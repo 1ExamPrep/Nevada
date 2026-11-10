@@ -1,0 +1,109 @@
+/* Pass Your Nevada Contractor Exam: style for the GoHighLevel contact form (TIj7N2GWNo2PSq5ddUrI).
+   Paste into GHL: Sites > Forms > Builder > open the form > Styles & Options > Custom CSS. Save.
+   Matches design 2 (Red Rock Guide): Nunito Sans, navy #0b2545, cobalt #0a4fa8, red rock #c4472a. */
+@import url("https://fonts.googleapis.com/css2?family=Nunito+Sans:wght@400;600;700;800&display=swap");
+
+#_builder-form, .form-builder, #_builder-form * {
+  font-family: "Nunito Sans", system-ui, -apple-system, "Segoe UI", Roboto, sans-serif !important;
+}
+#_builder-form, .form-builder {
+  background: #ffffff !important;
+  color: #1b2a41 !important;
+  padding: 8px 4px !important;
+  max-width: 100% !important;
+  box-shadow: none !important;
+  border: none !important;
+}
+
+/* spacing between fields */
+#_builder-form .form-builder--item, .form-builder .form-builder--item {
+  padding: 0 0 18px 0 !important;
+  margin: 0 !important;
+}
+
+/* labels */
+#_builder-form label, #_builder-form .field-label, .form-builder--item label {
+  display: block !important;
+  font-size: 14px !important;
+  font-weight: 700 !important;
+  color: #0b2545 !important;
+  margin: 0 0 6px !important;
+  letter-spacing: 0 !important;
+}
+
+/* text boxes, dropdowns and the message box */
+#_builder-form input[type="text"], #_builder-form input[type="email"], #_builder-form input[type="tel"],
+#_builder-form input[type="number"], #_builder-form input[type="date"], #_builder-form select,
+#_builder-form textarea, #_builder-form .form-control, #_builder-form .iti input {
+  width: 100% !important;
+  min-height: 48px !important;
+  padding: 12px 14px !important;
+  font-size: 16px !important; /* 16px stops phones zooming in */
+  line-height: 1.4 !important;
+  color: #1b2a41 !important;
+  background: #f7f9fc !important;
+  border: 1.5px solid #d6dde8 !important;
+  border-radius: 10px !important;
+  box-shadow: none !important;
+  transition: border-color .15s, box-shadow .15s, background .15s !important;
+}
+#_builder-form textarea { min-height: 130px !important; resize: vertical !important; }
+#_builder-form input::placeholder, #_builder-form textarea::placeholder { color: #8a96a8 !important; opacity: 1 !important; }
+#_builder-form input:hover, #_builder-form select:hover, #_builder-form textarea:hover { border-color: #b8c4d6 !important; }
+#_builder-form input:focus, #_builder-form select:focus, #_builder-form textarea:focus, #_builder-form .form-control:focus {
+  outline: none !important;
+  background: #ffffff !important;
+  border-color: #0a4fa8 !important;
+  box-shadow: 0 0 0 4px rgba(10, 79, 168, .14) !important;
+}
+
+/* phone field with the country flag */
+#_builder-form .iti { width: 100% !important; }
+#_builder-form .iti input { padding-left: 52px !important; }
+
+/* checkboxes and radio buttons (consent, choices) */
+#_builder-form input[type="checkbox"], #_builder-form input[type="radio"] {
+  width: 18px !important; height: 18px !important; min-height: 0 !important;
+  accent-color: #0a4fa8 !important; margin-right: 8px !important; vertical-align: -3px !important;
+}
+#_builder-form .option label, #_builder-form .terms-and-conditions, #_builder-form .checkbox label {
+  font-weight: 400 !important; font-size: 13px !important; color: #55627a !important; line-height: 1.5 !important;
+}
+#_builder-form a { color: #0a4fa8 !important; text-decoration: underline !important; }
+
+/* submit button */
+#_builder-form button[type="submit"], #_builder-form .btn-dark, #_builder-form .form-builder--item .btn {
+  width: 100% !important;
+  min-height: 52px !important;
+  padding: 14px 24px !important;
+  font-size: 17px !important;
+  font-weight: 800 !important;
+  letter-spacing: .01em !important;
+  color: #ffffff !important;
+  background: #0a4fa8 !important;
+  border: none !important;
+  border-radius: 10px !important;
+  box-shadow: 0 6px 16px rgba(10, 79, 168, .22) !important;
+  cursor: pointer !important;
+  transition: background .15s, transform .05s !important;
+}
+#_builder-form button[type="submit"]:hover, #_builder-form .btn-dark:hover { background: #083f86 !important; }
+#_builder-form button[type="submit"]:active, #_builder-form .btn-dark:active { transform: translateY(1px) !important; }
+
+/* errors and the thank-you message */
+#_builder-form .error, #_builder-form .text-danger, #_builder-form .help-block {
+  color: #c4472a !important; font-size: 13px !important; font-weight: 600 !important; margin-top: 6px !important;
+}
+#_builder-form .has-error input, #_builder-form .has-error textarea, #_builder-form .has-error select { border-color: #c4472a !important; }
+.thank-you-message, #_builder-form .thank-you-message {
+  font-size: 17px !important; color: #0b2545 !important; text-align: center !important; padding: 24px 8px !important;
+}
+
+/* headings or text blocks added in the builder */
+#_builder-form h1, #_builder-form h2, #_builder-form h3 { color: #0b2545 !important; font-weight: 800 !important; letter-spacing: -.01em !important; }
+#_builder-form p { color: #55627a !important; line-height: 1.6 !important; }
+
+/* two fields side by side on wide screens, stacked on phones */
+@media (max-width: 600px) {
+  #_builder-form .form-builder--item { width: 100% !important; flex: 0 0 100% !important; max-width: 100% !important; }
+}
