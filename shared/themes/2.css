@@ -87,3 +87,12 @@ h2::before{content:"";display:block;width:42px;height:4px;border-radius:2px;back
 /* package cards: show the whole Shopify product photo (they are square) instead of cropping it */
 .pc-img,.sg .pc-img{aspect-ratio:1/1;background:#fff;border-bottom:1px solid var(--line)}
 .pc-img img{object-fit:contain}
+
+/* secondary pages (license pages, contact): the steel-frame photo (shared/hero-build.*), fading into navy on the left */
+.hero--class{background:#0a2945}
+.hero--class::before{inset:0;background:url("../hero-build.jpg") right center/cover no-repeat;background-image:image-set(url("../hero-build.webp") type("image/webp"),url("../hero-build.jpg") type("image/jpeg"))}
+.hero--class::after{background:linear-gradient(90deg,#0a2945 0%,#0a2945 30%,rgba(10,41,69,.6) 50%,rgba(10,41,69,.05) 72%)}
+@media (max-width:720px){
+  .hero--class::before{inset:0;height:auto;background:url("../hero-build-sm.webp") 70% center/cover no-repeat}
+  .hero--class::after{background:linear-gradient(180deg,rgba(10,41,69,.93) 0%,rgba(10,41,69,.86) 100%)}
+}
