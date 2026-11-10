@@ -817,6 +817,8 @@ for q in POSTS + PAGES:
             "author": {"@type": "Organization" if not q["author"] or q["author"] == BRAND else "Person", "name": q["author"] or BRAND}, "publisher": publisher_ld(),
             "mainEntityOfPage": url, "url": url, "wordCount": q["words"], "keywords": ", ".join(q["tags"]) or None, "articleSection": "Nevada Contractor Exam Prep", "inLanguage": "en-US"}]
     lds[1] = {k: v for k, v in lds[1].items() if v}
+    # FAQ schema from the post's own questions, unless the post already carries its own FAQPage markup
+    if q.get("faq") and '"FAQPage"' not in q["html"]: lds.append(faq_ld(q["faq"]))
     ptitle = q.get("meta_title") or (q["title"] if len(q["title"]) + len(BRAND) + 3 > 60 else "%s | %s" % (q["title"], BRAND))
     pdesc = q.get("meta_description") or q["excerpt"]
     if is_page: lds[0] = crumbs_ld([("Home", ""), (q["title"], path)]); lds[1]["@type"] = "Article"
@@ -851,6 +853,20 @@ GEN_FAQ = json.load(open(os.path.join(ROOT, "content", "faq-general.json"), enco
 shutil.rmtree(os.path.join(ROOT, "faq"), ignore_errors=True)
 gen_pairs = [(q, a.replace("1 Exam Prep", FUL["name"])) for cg in GEN_FAQ for q, a in cg["items"]]
 sections = [(cg["slug"], cg["name"], len(cg["items"]), faq_html([(q, a.replace("1 Exam Prep", FUL["name"])) for q, a in cg["items"]])) for cg in GEN_FAQ]
+# questions from the newest posts join /faq/ automatically, a few per section so none passes 400 words
+_bq, _seen = [], {q.lower() for q, _ in gen_pairs}
+for _p in POSTS:
+    for _q, _a in _p.get("faq") or []:
+        if _q.lower() in _seen: continue
+        _seen.add(_q.lower()); _bq.append((_q, _a, _p))
+_bq = _bq[:int(CFG.get("faqFromBlog", 12))]
+BLOG_PAIRS = [(q_, a_) for q_, a_, _ in _bq]
+for _i in range(0, len(_bq), 4):
+    _chunk = _bq[_i:_i + 4]
+    _body = '<p class="faq-count">From our newest blog posts. Each answer links to the full post.</p>' + faq_html(
+        [(q_, '%s <a href="../blog/%s/">Read the post</a>' % (esc(a_), p_["slug"])) for q_, a_, p_ in _chunk], open_first=False)
+    sections.append(("from-the-blog" if _i == 0 else "from-the-blog-%d" % (_i // 4 + 1),
+                     "What do our latest posts answer?" if _i == 0 else "What else do the posts answer?", len(_chunk), _body))
 # the license links, in a few sections so none runs past 400 words (vacopy.FAQ_LICENSE_SECTIONS, or one list)
 for _sid, _h, _groups in getattr(vacopy, "FAQ_LICENSE_SECTIONS", [("licenses", "Where are the questions for my license?", None)]):
     _cl = [c for c in (CLASSES[s] for s in ORDER if s in CLASSES) if _groups is None or c["group"] in _groups]
@@ -862,7 +878,7 @@ secs = "".join('<section class="faq-sec" aria-labelledby="%s"><h2 id="%s">%s</h2
 flead = vacopy.GENERAL_FAQ_LEAD.format(n=len(gen_pairs), k=n_cls)
 ftitle = fit_title("Nevada Contractor Exam FAQ: %d Answers" % len(gen_pairs))
 fdesc = trim_desc(flead)
-lds = [crumbs_ld([("Home", ""), ("FAQ", "faq/")]), faq_ld(gen_pairs[:80])]
+lds = [crumbs_ld([("Home", ""), ("FAQ", "faq/")]), faq_ld((gen_pairs + BLOG_PAIRS)[:80])]
 fout = (ftpl.replace("{{TITLE}}", esc(ftitle)).replace("{{DESC}}", esc(fdesc)).replace("{{BRAND}}", esc(BRAND))
         .replace("{{CANONICAL}}", ('<link rel="canonical" href="%s">\n' % absurl("faq/")) if SITE else "").replace("{{OGIMAGE}}", ('<meta property="og:image" content="%s">\n' % esc(CFG.get("logo"))) if CFG.get("logo") else "")
         .replace("{{HEAD_EXTRA}}", head_extra("faq/", ftitle, fdesc, CFG.get("logo"), "../", False, lds))
