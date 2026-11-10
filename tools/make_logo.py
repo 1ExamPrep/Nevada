@@ -1,5 +1,6 @@
 """Cut the site's logo assets from brand/logo-source.png (transparent PNG of the full logo).
 Run once after replacing the source:  python3 tools/make_logo.py
+If brand/icon-source.png exists it is used for the square icon, favicon and touch icon instead of a cut-out.
 Writes shared/logo-full.png, logo-nav.png (header, 2x), logo-mark.png (square icon), favicon.png, apple-touch-icon.png, logo.png (1200x630 social card)."""
 import os, sys
 from PIL import Image, ImageFilter
@@ -30,6 +31,9 @@ try:  # drop specks of the wordmark left at the cut edge: keep only blobs bigger
     mark = Image.fromarray(arr)
 except ImportError: pass
 mark = mark.crop(mark.getbbox())
+icon_src = os.path.join(ROOT, "brand", "icon-source.png")
+if os.path.exists(icon_src):  # a separate icon file wins over the one cut from the logo
+    mark = Image.open(icon_src).convert("RGBA"); mark.putalpha(mark.getchannel("A").point(lambda v: 255 if v > 140 else 0)); mark = mark.crop(mark.getbbox())
 side = max(mark.size) + 40; sq = Image.new("RGBA", (side, side), (0, 0, 0, 0)); sq.paste(mark, ((side - mark.width) // 2, (side - mark.height) // 2), mark)
 sq.resize((512, 512), Image.LANCZOS).save(os.path.join(out, "logo-mark.png"), optimize=True)
 # favicon (navy rounded square behind the mark so it reads on any tab colour) + apple touch icon
