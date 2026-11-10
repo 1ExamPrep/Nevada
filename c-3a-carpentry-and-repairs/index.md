@@ -1,0 +1,264 @@
+---
+title: Nevada Carpentry and Repairs Contractor (C-3A) Exam Prep
+url: https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/
+updated: 2026-11-10
+site: Pass Your Nevada Contractor Exam
+description: Carpentry and Repairs Contractor (C-3A) exam prep for Nevada: 12 options from $79.99 to $2,710, including book package, books allowed in the exam, books and.
+---
+
+[All licenses](https://passyournevadacontractorexam.com/) /[Carpentry, drywall, paint and plaster](https://passyournevadacontractorexam.com/#finish) /Carpentry and Repairs Contractor (C-3A)
+
+# Carpentry and Repairs Contractor (C-3A) exam prep
+
+The Nevada Carpentry and Repairs Contractor (C-3A) license is an NSCB Class C specialty subclassification for interior and finish work. It takes four years of experience, the Business and Law (CMS) exam, the C-3A trade exam, a bond and a monetary limit. Here are 12 packages, from $79.99 to $2,710, each with one-click checkout.
+See the packages
+PackagesCompareHow the exam worksFAQSources
+
+Quick facts
+
+Price range
+
+$79.99 to $2,710
+
+Options
+
+12
+
+Licensed by
+
+NSCB, exams by PSI
+
+Book rule
+
+CMS open book; trade exam with listed codes
+See the packages
+Not sure which one? Call [(877) 775-9400](tel:+18777759400)
+
+## Key takeaways
+
+- 12 options for the Carpentry and Repairs Contractor (C-3A) exam, from $79.99 to $2,710.
+- Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
+- The CMS is open book with the Construction Business and Law Manual for Nevada; trade exams are closed book except for the code references their outline allows.
+- Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
+
+Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+
+## Carpentry and Repairs Contractor (C-3A) options: online courses and practice
+
+Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Details shows the full description first.
+
+Online Practice Questions
+[Nevada Carpentry And Repairs Contractor (C-3A) Exam - Online Practice Questions](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/online-practice-exams/)
+
+Timed practice questions online.
+
+$79.99 (was $120) Save 33%
+[Buy now](https://1examprep.com/cart/46235708751929:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/online-practice-exams/)
+
+Online Exam Prep Course
+[Nevada Carpentry And Repairs Contractor (C-3A) Exam - Online Exam Prep](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/online-course/)
+
+An online course with practice exams.
+
+$295 (was $395) Save 25%  to $595
+[Buy now](https://1examprep.com/cart/46266840973369:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/online-course/)
+
+## Carpentry and Repairs Contractor (C-3A) options: books for the exam room
+
+4 products of the 12 Carpentry and Repairs Contractor (C-3A) options, from $199.
+
+Book Package
+[Nevada Carpentry And Repairs Contractor (C-3A) Exam Book Package](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/book-package/)
+
+The reference books, new and unmarked.
+
+$395 (was $495) Save 20%  to $695
+[Buy now](https://1examprep.com/cart/46367531008057:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/book-package/)
+
+Books Allowed in the Exam
+[Nevada Carpentry And Repairs Contractor (C-3A) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-books/)
+
+The references psi allows in the exam room.
+
+$199 (was $299) Save 33%  to $399
+[Buy now](https://1examprep.com/cart/46367880675385:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-books/)
+
+Highlighted and Tabbed Books
+[Nevada Carpentry And Repairs Contractor (C-3A) Highlighted & Tabbed Book Package](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/highlighted-tabbed/)
+
+The reference books already highlighted and tabbed.
+
+$695 (was $895) Save 22%  to $990
+[Buy now](https://1examprep.com/cart/46367895191609:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/highlighted-tabbed/)
+
+Highlighted and Tabbed Exam-Room Books
+[Nevada Carpentry And Repairs Contractor (C-3A) Highlighted & Tabbed Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-books-highlighted/)
+
+Exam-room references, highlighted and tabbed.
+
+$399 (was $599) Save 33%  to $694
+[Buy now](https://1examprep.com/cart/46367902662713:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-books-highlighted/)
+
+## Carpentry and Repairs Contractor (C-3A) options: live training and rentals
+
+5 products of the 12 Carpentry and Repairs Contractor (C-3A) options, from $595.
+
+Live Virtual Training
+[Nevada Carpentry and Repairs Contractor (C-3A) Exam Prep - Live Virtual + Self Study Training](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/live-training/)
+
+Live virtual classes plus self-study.
+
+$595 (was $795) Save 25%
+[Buy now](https://1examprep.com/cart/46253180846137:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/live-training/)
+
+Books and Courses Rental
+[Nevada Carpentry And Repairs Contractor (C-3A)- Books & Courses Rental Package](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/rental-package/)
+
+Rental books plus the online course.
+
+$1,285 (was $1,585) Save 19%  to $2,035
+[Buy now](https://1examprep.com/cart/46266842546233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/rental-package/)
+
+Exam-Room Books and Course Rental
+[Nevada Carpentry And Repairs Contractor (C-3A) - Books & Course Rental - Exam Room Approved](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-rental/)
+
+Rental exam-room books plus the online course.
+
+$989 (was $1,289) Save 23%  to $1,739
+[Buy now](https://1examprep.com/cart/46266842611769:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-rental/)
+
+Ultimate Rental Package
+[Nevada Carpentry And Repairs Contractor (C-3A) Ultimate Exam Prep Rental](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/ultimate-rental/)
+
+Tabbed rental books, course and live training.
+
+$1,710 (was $2,110) Save 19%
+[Buy now](https://1examprep.com/cart/45852132606009:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/ultimate-rental/)
+
+Ultimate Exam-Room Books, Course and Application
+[Nevada Carpentry And Repairs Contractor (C-3A) Ultimate Books Exam Room Approved + Course + Application Package](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/ultimate-exam-room/)
+
+Exam-room books, course and application help.
+
+$1,414 (was $1,814) Save 22%
+[Buy now](https://1examprep.com/cart/45859109699641:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/ultimate-exam-room/)
+
+## Carpentry and Repairs Contractor (C-3A) option: all-inclusive and licensing services
+
+1 product of the 12 Carpentry and Repairs Contractor (C-3A) options, from $2,710.
+
+The 1 Package (all-inclusive)
+[The 1 Package: All-Inclusive Nevada Carpentry And Repairs Contractor (C-3A) Exam, Licensing & Business Setup Solution](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/the-1-package/)
+
+Exam prep, books, paperwork and business setup.
+
+$2,710 (was $3,210) Save 16%
+[Buy now](https://1examprep.com/cart/45859083878457:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/the-1-package/)
+
+## How do the Carpentry and Repairs Contractor (C-3A) options compare?
+
+Prices are the starting price for each option; some offer add-ons at checkout.
+
+Option | What you get | Price
+[Online Practice Questions](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/online-practice-exams/) | timed practice questions online | $79.99
+[Online Exam Prep Course](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/online-course/) | an online course with practice exams | $295
+[Book Package](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/book-package/) | the reference books, new and unmarked | $395
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-books/) | the references PSI allows in the exam room | $199
+[Highlighted and Tabbed Books](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/highlighted-tabbed/) | the reference books already highlighted and tabbed | $695
+[Highlighted and Tabbed Exam-Room Books](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-books-highlighted/) | exam-room references, highlighted and tabbed | $399
+[Live Virtual Training](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/live-training/) | live virtual classes plus self-study | $595
+[Books and Courses Rental](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/rental-package/) | rental books plus the online course | $1,285
+[Exam-Room Books and Course Rental](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/exam-room-rental/) | rental exam-room books plus the online course | $989
+[Ultimate Rental Package](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/ultimate-rental/) | tabbed rental books, course and live training | $1,710
+[Ultimate Exam-Room Books, Course and Application](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/ultimate-exam-room/) | exam-room books, course and application help | $1,414
+[The 1 Package (all-inclusive)](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/the-1-package/) | exam prep, books, paperwork and business setup | $2,710
+
+## How does the Carpentry and Repairs Contractor (C-3A) exam work?
+
+The Carpentry and Repairs Contractor (C-3A) license comes from the Nevada State Contractors Board. You apply to the NSCB with your experience and financial statement, the Board sends an exam eligibility letter, and you book the CMS and the trade exam with PSI. Scores come right after the exam.
+
+- Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
+- The CMS is open book with the Construction Business and Law Manual for Nevada; trade exams are closed book except for the code references their outline allows.
+- PSI charges $95 for one exam portion, or $140 for a trade exam taken with the CMS, and you get three attempts before the application is void.
+- The Board sets a bond from $1,000 to $500,000 and a monetary limit on every license, based on your experience and financial statements.
+
+### Which Carpentry and Repairs Contractor (C-3A) option should I choose?
+
+The Online Practice Questions at $79.99 is the lightest way into the Carpentry and Repairs Contractor (C-3A) exam: timed practice questions online. Highlighted and Tabbed Books at $695 are the biggest time saver on an open-book test, because the references arrive ready for the exam room. The Online Exam Prep Course at $295 adds timed practice you can run on a phone between jobs. Live Virtual Training at $595 suits people who learn better with an instructor and a fixed schedule. The The 1 Package (all-inclusive) at $2,710 is the most complete option: exam prep, books, paperwork and business setup.
+
+## Carpentry and Repairs Contractor (C-3A) exam questions
+
+### How much does Carpentry and Repairs Contractor (C-3A) exam prep cost?
+
+Carpentry and Repairs Contractor (C-3A) exam prep runs from $79.99 to $2,710 across 12 options: Online Practice Questions $79.99; Online Exam Prep Course $295; Book Package $395; Books Allowed in the Exam $199; Highlighted and Tabbed Books $695; Highlighted and Tabbed Exam-Room Books $399; and 6 more.
+
+### Is the Carpentry and Repairs Contractor (C-3A) exam open book?
+
+Partly. The Business and Law (CMS) exam is open book with the Construction Business and Law Manual for Nevada. Trade exams are closed book except for the code references named in the PSI content outline for your classification, which is why the exam-room book packages are sold as allowed in the exam.
+
+### Who issues the Carpentry and Repairs Contractor (C-3A) license or card in Nevada?
+
+It comes from the Nevada State Contractors Board (NSCB), with exams by PSI. Buying a package here does not register you or make you eligible; the board approves you first, and the exam vendor schedules the test.
+
+### What does the Carpentry and Repairs Contractor (C-3A) exam cost?
+
+PSI charges $95 for one exam portion and $140 when the trade exam is taken with the Business and Law (CMS) exam. The NSCB application fee of $300 is separate.
+
+### What is the monetary limit on a Nevada license?
+
+Every Nevada contractor license carries a monetary limit, the most you can contract for on one job. The Board sets it, along with a bond of $1,000 to $500,000, from your financial statement and experience.
+
+### Are these the real exam questions?
+
+No. Licensing exam questions are confidential. The courses and practice exams are original material written to the same subjects and format, with explanations that point to the reference section.
+
+### How do the books and courses arrive?
+
+Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online courses and practice exams arrive by email after purchase, so you can start the same day. Call (877) 775-9400 with any question first.
+
+## Related pages
+
+### More in Carpentry, drywall, paint and plaster
+
+- [Carpentry, Maintenance and Minor Repairs Contractor (C-3)](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/)
+- [Finish Carpentry Contractor (C-3B)](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/)
+- [Drywall Contractor (C-3E)](https://passyournevadacontractorexam.com/c-3e-drywall/)
+- [Painting and Decorating Contractor (C-4)](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/)
+- [Painting Contractor (C-4A)](https://passyournevadacontractorexam.com/c-4a-painting/)
+- [Drywall Contractor (C-4E)](https://passyournevadacontractorexam.com/c-4e-drywall/)
+- [Sheet Metal Studs Contractor (C-4F)](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/)
+- [Lathing and Plastering Contractor (C-17)](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/)
+
+### Other license groups
+
+- [Class B general building contractors](https://passyournevadacontractorexam.com/#building)
+- [Electrician ID cards](https://passyournevadacontractorexam.com/#electricians)
+- [C-2 electrical contractors](https://passyournevadacontractorexam.com/#electrical)
+- [Plumbing, heating and air (C-1, C-21)](https://passyournevadacontractorexam.com/#mechanical)
+- [Concrete, masonry, roofing and steel](https://passyournevadacontractorexam.com/#structure)
+- [Solar, signs and other specialty](https://passyournevadacontractorexam.com/#specialty)
+- [Class A general engineering contractors](https://passyournevadacontractorexam.com/#engineering)
+- [Business and Law (CMS) and licensing help](https://passyournevadacontractorexam.com/#business)
+- [Journeyman plumber cards](https://passyournevadacontractorexam.com/#plumbing)
+- [Code books, courses and national exams](https://passyournevadacontractorexam.com/#codes)
+
+### Also on this site
+
+- [Nevada exam FAQ](https://passyournevadacontractorexam.com/faq/)
+- [Study tips and licensing news](https://passyournevadacontractorexam.com/blog/)
+- [Which board tests what](https://passyournevadacontractorexam.com/#classes)
+
+## Sources
+
+- [NSCB: license examinations](https://www.nvcontractorsboard.com/licensing/license-examinations/)
+- [PSI: Nevada contractor management (CMS) bulletin](https://test-takers.psiexams.com/api/content/bulletin/304)
+- [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
+- [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
+
+Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+
+---
+
+Source: https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/  
+Publisher: Pass Your Nevada Contractor Exam. Orders are fulfilled by 1 Exam Prep (https://1examprep.com). Phone (877) 775-9400, email sales@1examprep.com.  
+Prices change; the product page and checkout show the current price.

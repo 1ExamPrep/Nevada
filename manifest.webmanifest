@@ -1,0 +1,20 @@
+{
+ "name": "Pass Your Nevada Contractor Exam",
+ "short_name": "NV Contractor",
+ "start_url": "./",
+ "display": "browser",
+ "background_color": "#ffffff",
+ "theme_color": "#0b2545",
+ "icons": [
+  {
+   "src": "shared/apple-touch-icon.png",
+   "sizes": "180x180",
+   "type": "image/png"
+  },
+  {
+   "src": "shared/favicon.svg",
+   "sizes": "any",
+   "type": "image/svg+xml"
+  }
+ ]
+}

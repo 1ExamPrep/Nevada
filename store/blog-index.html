@@ -1,0 +1,86 @@
+<!doctype html>
+<html lang="en">
+<head>
+<meta charset="utf-8">
+<meta name="viewport" content="width=device-width,initial-scale=1">
+<title>{{TITLE}}</title>
+<meta name="description" content="{{DESC}}">
+{{CANONICAL}}<meta property="og:type" content="website">
+<meta property="og:title" content="{{TITLE}}">
+<meta property="og:description" content="{{DESC}}">
+{{OGIMAGE}}{{HEAD_EXTRA}}<link rel="preconnect" href="https://fonts.googleapis.com">
+<link href="https://fonts.googleapis.com/css2?family=Archivo+Black&family=Archivo:wght@400;500;700&display=swap" rel="stylesheet">
+<link rel="alternate" type="application/rss+xml" title="{{BRAND}} blog" href="{{REL}}blog/feed.xml">
+{{ASSETS_HEAD}}
+</head>
+<body class="blog">
+<a class="skip" href="#main">Skip to content</a>
+<header class="nav"><div class="wrap">
+  <a class="brand" href="{{HOME}}" id="homeLink" aria-label="{{BRAND}} home">{{WORDMARK}}</a>
+  <nav class="nav-links" aria-label="Main"><a href="{{HOME}}#building">Licenses</a><a href="{{HOME}}#compare">Compare</a><a href="{{REL}}faq/">FAQ</a><a href="{{REL}}blog/" aria-current="page">Blog</a></nav>
+  {{NAV_TOOLS}}
+</div></header>
+
+<main class="wrap" id="main">
+  <nav class="crumb" aria-label="Breadcrumb"><a href="{{HOME}}">Home</a><span>/</span>Blog</nav>
+  <div class="blog-head">
+    <h1 id="h1">{{H1}}</h1>
+    <p class="post-lead">{{LEAD}}</p>
+    {{TAG_FILTER}}
+  </div>
+
+  {{TAKEAWAYS_HTML}}
+  {{INTRO_HTML}}
+  {{FEATURED_HTML}}
+  <section class="post-grid" aria-label="All posts">
+    {{CARDS_HTML}}
+  </section>
+  {{EMPTY_HTML}}
+
+  <section class="blog-start" aria-labelledby="h-start">
+    <h2 id="h-start">Where should you start if your Nevada exam is coming up?</h2>
+    <p>Three things trip up most Nevada candidates, and none of them is a lack of trade knowledge. The first is that there are two exams, not one. Every contractor takes the Business and Law exam, which PSI calls the CMS, as well as the trade exam for the classification, and people who spend all their time on the trade side often lose the license on the business side. The CMS is open book with the Construction Business and Law Manual for Nevada, and it gives you 120 minutes for 60 scored questions, so learning the layout of the manual matters more than memorising it.</p>
+    <p>The second is the book rules. The CMS allows only the Nevada manual, and trade exams are closed book except for the code references named in the PSI outline for your classification, so check every book against that outline. The third is the three-attempt limit: a third failure voids the application. The posts here link to the matching <a href="{{HOME}}#building">license pages</a>, where every package ships from our fulfillment center, {{FULFILL_NAME}}.</p>
+    <h2 id="h-topics">What does this blog cover?</h2>
+    <p><strong>Study strategy.</strong> How to split four to six weeks between the CMS manual, the trade references and timed practice; how to keep an error log that points at sections instead of vague topics; and what to do in the last 3 days. Every plan assumes about an hour an evening, because most readers work full days.</p>
+    <p><strong>Using the references.</strong> Where the lien, licensing and labor law answers sit in the Nevada manual, how to highlight a book so it helps under time pressure, and how to read an exception without missing the condition that makes it apply.</p>
+    <p><strong>Nevada licensing.</strong> NSCB classifications from A to C-42, the monetary limit and bond, the new B-7 Restricted License, and the Electrical Qualifications ID cards for Las Vegas, Clark County and Reno. Rules change without much notice, so each post carries the date it was last checked and a link to the board's own page.</p>
+  </section>
+
+  <section class="blog-start" aria-labelledby="h-plan">
+    <h2 id="h-plan">What does a five-week study plan for a Nevada contractor license look like?</h2>
+    <p>Five weeks at about an hour a day is enough for most candidates who already work in the trade. The plan below covers both exams most applicants book together at PSI: the CMS, with 60 scored questions in 120 minutes and 45 correct to pass, and the trade exam for your classification. Adjust the weeks for your own license; the order of the work stays the same.</p>
+    <ol>
+      <li><strong>Week 1: learn the CMS manual, not the answers.</strong> Read the table of contents of the Construction Business and Law Manual for Nevada until you can name the chapter for licensing, liens, contracts, taxes, labor law and safety without looking. Time yourself finding ten random topics a night.</li>
+      <li><strong>Week 2: mark the books.</strong> Highlight the numbers you keep coming back to: deadlines, dollar limits, percentages. Then pull the PSI content outline for your trade exam and check which code references it allows in the room.</li>
+      <li><strong>Week 3: the trade exam.</strong> Work through the trade references topic by topic, using the question counts in the PSI outline to decide where the time goes.</li>
+      <li><strong>Week 4: full practice exams.</strong> Sit a complete timed CMS and a timed trade practice exam. Sort every miss into one of three piles: did not know the rule, could not find it in time, or misread the question.</li>
+      <li><strong>Week 5: fix the biggest pile, then rest.</strong> If you ran out of time, drill lookups. If you did not know the rule, reread those sections. Take one more timed exam three days before the test, then stop.</li>
+    </ol>
+    <h2 id="h-plan-adjust">How do you adjust the plan for an electrician card?</h2>
+    <p>Electricians testing for a Las Vegas, Clark County or Reno ID card take an ICC national exam instead, open book with the National Electrical Code. Swap the CMS manual for the NEC edition named on your exam, give the code book two weeks instead of one, and add a week of calculations. The ICC journeyman exam runs 80 questions in 4 hours, so the timing work matters just as much.</p>
+    <p>Keep one error log for the whole plan, on paper or in a phone note, whichever you will actually open. Write the question, the section that answers it and how long it took you, and reread the log every Sunday. Candidates who track their misses this way usually find that most lost points come from a handful of sections.</p>
+  </section>
+
+  <section class="blog-start" aria-labelledby="h-bfaq">
+    <h2 id="h-bfaq">Questions we get asked most</h2>
+    <div class="faq" style="margin:0;max-width:none">
+      {{BLOG_FAQ_HTML}}
+    </div>
+  </section>
+
+  <aside class="post-cta" aria-label="Shop packages">
+    <div>
+      <span class="pc-tier">Ready to study?</span>
+      <p class="cta-h">Find your license, then choose a package.</p>
+      <p>Exam prep for every Nevada contractor classification, the Business and Law exam and the electrician card exams on this site. Buy buttons go straight to checkout.</p>
+    </div>
+    <a class="btn btn-buy" href="{{HOME}}#building" data-track="blog_cta">Find my license</a>
+  </aside>
+</main>
+
+{{FOOTER}}
+<script>window.ROUTE={{ROUTE}};</script>
+{{ASSETS_SEARCH}}
+</body>
+</html>

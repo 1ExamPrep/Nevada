@@ -1,0 +1,148 @@
+# Pass Your Nevada Contractor Exam
+
+> Exam prep for 86 Nevada licenses: NSCB Class A general engineering, Class B general building (B, B-2, B-6, B-7) and Class C specialty classifications, the Nevada Business and Law (CMS) exam, ICC exams for the Las Vegas, Clark County and Reno Electrical Qualifications ID cards, journeyman plumber cards, NASCLA and code courses. 463 products: online courses, reference book packages, highlighted books, rentals, combos and The 1 Package. Buy buttons go straight to checkout; orders are fulfilled by 1 Exam Prep. Phone (877) 775-9400, email sales@1examprep.com.
+
+## How the site is organised
+
+- `/` lists every license, grouped: electrical, plumbing, air conditioning, city exams, business setup, national exams, code books.
+- `/<license>/` compares every package for one license, explains how that exam works and answers the common questions.
+- `/<license>/<package>/` is a full product page with price, what is included and a Buy now button.
+
+## Class B general building contractors
+
+- [General Building Contractor (B)](https://passyournevadacontractorexam.com/b-general-building/index.md): 13 options from $79.99
+- [Residential and Small Commercial Contractor (B-2)](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/index.md): 12 options from $79.99
+- [Commercial Remodeling Contractor (B-6)](https://passyournevadacontractorexam.com/b-6-commercial-remodeling/index.md): 13 options from $79.99
+- [Residential Remodeling Contractor (B-7)](https://passyournevadacontractorexam.com/b-7-residential-remodeling/index.md): 8 options from $79.99
+- [NASCLA Commercial General Building Contractor](https://passyournevadacontractorexam.com/nascla-commercial-general-building/index.md): 6 options from $395
+
+## Electrician ID cards
+
+- [Journeyman Electrician (ICC G17)](https://passyournevadacontractorexam.com/journeyman-electrician/index.md): 43 options from $59.95
+- [Master Electrician (ICC G16)](https://passyournevadacontractorexam.com/master-electrician/index.md): 25 options from $59.95
+- [Residential Electrician (ICC G18)](https://passyournevadacontractorexam.com/residential-electrician/index.md): 15 options from $225
+- [Low Voltage Electrician (ICC G21)](https://passyournevadacontractorexam.com/low-voltage-electrician/index.md): 5 options from $225
+
+## C-2 electrical contractors
+
+- [Electrical Contractor (C-2)](https://passyournevadacontractorexam.com/c-2-electrical/index.md): 7 options from $79.99
+- [Low Voltage Contractor (C-2D)](https://passyournevadacontractorexam.com/c-2d-low-voltage/index.md): 12 options from $79.99
+- [Residential Wiring Contractor (C-2F)](https://passyournevadacontractorexam.com/c-2f-residential-wiring/index.md): 12 options from $79.99
+- [Photovoltaics Contractor (C-2G)](https://passyournevadacontractorexam.com/c-2g-photovoltaics/index.md): 11 options from $79.99
+- [Lines to Transmit Electricity Contractor (C-2E)](https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/index.md): 2 options from $199
+
+## Plumbing, heating and air (C-1, C-21)
+
+- [Plumbing and Heating Contractor (C-1)](https://passyournevadacontractorexam.com/c-1-plumbing-and-heating/index.md): 2 options from $1,195
+- [Plumbing Contractor (C-1D)](https://passyournevadacontractorexam.com/c-1d-plumbing/index.md): 2 options from $945
+- [Heating, Cooling and Circulating Air Contractor (C-1F)](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/index.md): 2 options from $199
+- [Pipes and Vents for Gas Contractor (C-1G)](https://passyournevadacontractorexam.com/c-1g-pipes-and-vents-for-gas/index.md): 1 option from $745
+- [Water Heater Contractor (C-1H)](https://passyournevadacontractorexam.com/c-1h-water-heater/index.md): 2 options from $199
+- [Pipe and Duct Insulation Contractor (C-1C)](https://passyournevadacontractorexam.com/c-1c-pipe-and-duct-insulation/index.md): 2 options from $199
+- [Sheet Metal Contractor (C-1E)](https://passyournevadacontractorexam.com/c-1e-sheet-metal/index.md): 2 options from $445
+- [Chilled-Water Piping Contractor (C-1I)](https://passyournevadacontractorexam.com/c-1i-chilled-water-piping/index.md): 2 options from $445
+- [Breathing Air Systems for Firefighters Contractor (C-1J)](https://passyournevadacontractorexam.com/c-1j-breathing-air-systems-for-firefighters/index.md): 1 option from $199
+- [Industrial Piping Contractor (C-1K)](https://passyournevadacontractorexam.com/c-1k-industrial-piping/index.md): 2 options from $445
+- [Refrigeration and Air Conditioning Contractor (C-21)](https://passyournevadacontractorexam.com/c-21-refrigeration-and-air-conditioning/index.md): 2 options from $495
+- [Refrigeration Contractor (C-21A)](https://passyournevadacontractorexam.com/c-21a-refrigeration/index.md): 2 options from $199
+- [Air Conditioning Contractor (C-21B)](https://passyournevadacontractorexam.com/c-21b-air-conditioning/index.md): 1 option from $1,545
+- [Sheet Metal Contractor (C-21C)](https://passyournevadacontractorexam.com/c-21c-sheet-metal/index.md): 2 options from $445
+- [Refrigeration and Air Conditioning Contractor (C-21D)](https://passyournevadacontractorexam.com/c-21d-refrigeration-and-air-conditioning/index.md): 2 options from $199
+- [Solar Air Conditioning Contractor (C-21E)](https://passyournevadacontractorexam.com/c-21e-solar-air-conditioning/index.md): 2 options from $199
+- [Chilled and Hot Water Systems Contractor (C-21F)](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/index.md): 2 options from $495
+- [Industrial Piping Contractor (C-21G)](https://passyournevadacontractorexam.com/c-21g-industrial-piping/index.md): 2 options from $445
+- [Sheet Metal Contractor (C-13)](https://passyournevadacontractorexam.com/c-13-sheet-metal/index.md): 2 options from $495
+- [Gas Equipment Contractor (C-38)](https://passyournevadacontractorexam.com/c-38-gas-equipment/index.md): 2 options from $495
+
+## Carpentry, drywall, paint and plaster
+
+- [Carpentry, Maintenance and Minor Repairs Contractor (C-3)](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/index.md): 12 options from $79.99
+- [Carpentry and Repairs Contractor (C-3A)](https://passyournevadacontractorexam.com/c-3a-carpentry-and-repairs/index.md): 12 options from $79.99
+- [Finish Carpentry Contractor (C-3B)](https://passyournevadacontractorexam.com/c-3b-finish-carpentry/index.md): 8 options from $79.99
+- [Drywall Contractor (C-3E)](https://passyournevadacontractorexam.com/c-3e-drywall/index.md): 12 options from $79.99
+- [Painting and Decorating Contractor (C-4)](https://passyournevadacontractorexam.com/c-4-painting-and-decorating/index.md): 8 options from $79.99
+- [Painting Contractor (C-4A)](https://passyournevadacontractorexam.com/c-4a-painting/index.md): 7 options from $79.99
+- [Drywall Contractor (C-4E)](https://passyournevadacontractorexam.com/c-4e-drywall/index.md): 12 options from $79.99
+- [Sheet Metal Studs Contractor (C-4F)](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/index.md): 12 options from $79.99
+- [Lathing and Plastering Contractor (C-17)](https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/index.md): 9 options from $79.99
+- [Drywall Contractor (C-17C)](https://passyournevadacontractorexam.com/c-17c-drywall/index.md): 12 options from $79.99
+- [Studs of Sheet Metal Contractor (C-17F)](https://passyournevadacontractorexam.com/c-17f-studs-of-sheet-metal/index.md): 12 options from $79.99
+- [Tiling Contractor (C-20)](https://passyournevadacontractorexam.com/c-20-tiling/index.md): 2 options from $345
+
+## Concrete, masonry, roofing and steel
+
+- [Concrete Contractor (C-5)](https://passyournevadacontractorexam.com/c-5-concrete/index.md): 12 options from $79.99
+- [Roofing and Siding Contractor (C-15)](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/index.md): 13 options from $79.99
+- [Roofing Contractor (C-15A)](https://passyournevadacontractorexam.com/c-15a-roofing/index.md): 11 options from $79.99
+- [Masonry Contractor (C-18)](https://passyournevadacontractorexam.com/c-18-masonry/index.md): 12 options from $79.99
+- [Steel Reinforcing and Erection Contractor (C-14)](https://passyournevadacontractorexam.com/c-14-steel-reinforcing-and-erection/index.md): 1 option from $595
+- [Reinforcing Steel Contractor (C-14A)](https://passyournevadacontractorexam.com/c-14a-reinforcing-steel/index.md): 1 option from $495
+
+## Solar, signs and other specialty
+
+- [Solar Contractor (C-37)](https://passyournevadacontractorexam.com/c-37-solar/index.md): 2 options from $199
+- [Solar Water Heating Contractor (C-37A)](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/index.md): 2 options from $199
+- [Solar Space Heating Contractor (C-37B)](https://passyournevadacontractorexam.com/c-37b-solar-space-heating/index.md): 2 options from $199
+- [Solar Air Conditioning Contractor (C-37C)](https://passyournevadacontractorexam.com/c-37c-solar-air-conditioning/index.md): 2 options from $199
+- [Solar Pool Heating Contractor (C-37D)](https://passyournevadacontractorexam.com/c-37d-solar-pool-heating/index.md): 2 options from $199
+- [Sign Contractor (C-6B)](https://passyournevadacontractorexam.com/c-6b-sign/index.md): 2 options from $345
+- [Elevation and Conveyance Contractor (C-7)](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/index.md): 2 options from $795
+- [Landscape Contractor (C-10)](https://passyournevadacontractorexam.com/c-10-landscape/index.md): 1 option from $445
+- [Drilling Wells Contractor (C-23)](https://passyournevadacontractorexam.com/c-23-drilling-wells/index.md): 2 options from $29
+- [Fire Detection Contractor (C-41C)](https://passyournevadacontractorexam.com/c-41c-fire-detection/index.md): 2 options from $495
+- [Constructing, Altering or Improving Contractor (C-42)](https://passyournevadacontractorexam.com/c-42-constructing-altering-or-improving/index.md): 3 options from $199
+
+## Class A general engineering contractors
+
+- [General Engineering Contractor (A)](https://passyournevadacontractorexam.com/a-general-engineering/index.md): 2 options from $745
+- [Commercial and Residential Pools Contractor (A-10)](https://passyournevadacontractorexam.com/a-10-commercial-and-residential-pools/index.md): 2 options from $145
+- [Residential Pools Contractor (A-10A)](https://passyournevadacontractorexam.com/a-10a-residential-pools/index.md): 2 options from $145
+- [Residential Spas Contractor (A-10B)](https://passyournevadacontractorexam.com/a-10b-residential-spas/index.md): 2 options from $145
+- [Repair of Pools and Spas Contractor (A-10C)](https://passyournevadacontractorexam.com/a-10c-repair-of-pools-and-spas/index.md): 2 options from $145
+- [Pool Alteration and Repair Contractor (A-10E)](https://passyournevadacontractorexam.com/a-10e-pool-alteration-and-repair/index.md): 2 options from $145
+- [Excavating and Grading Contractor (A-7)](https://passyournevadacontractorexam.com/a-7-excavating-and-grading/index.md): 1 option from $895
+- [Excavating, Grading, Trenching and Surfacing Contractor (A-12)](https://passyournevadacontractorexam.com/a-12-excavating-grading-trenching-and-surfacing/index.md): 1 option from $1,095
+- [Paving of Streets, Driveways and Parking Lots Contractor (A-16)](https://passyournevadacontractorexam.com/a-16-paving-of-streets-driveways-and-parking-lots/index.md): 1 option from $445
+- [Sewers, Drains and Pipes Contractor (A-15)](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/index.md): 2 options from $15
+- [Pipelines and Conduits Contractor (A-19)](https://passyournevadacontractorexam.com/a-19-pipelines-and-conduits/index.md): 2 options from $199
+- [Pipelines and Conduits for Water Contractor (A-19A)](https://passyournevadacontractorexam.com/a-19a-pipelines-and-conduits-for-water/index.md): 1 option from $445
+- [Pipelines and Conduits for Gas Contractor (A-19B)](https://passyournevadacontractorexam.com/a-19b-pipelines-and-conduits-for-gas/index.md): 2 options from $199
+- [Lines to Transmit Electricity Contractor (A-17)](https://passyournevadacontractorexam.com/a-17-lines-to-transmit-electricity/index.md): 1 option from $145
+- [Industrial Piping Contractor (A-20)](https://passyournevadacontractorexam.com/a-20-industrial-piping/index.md): 2 options from $199
+- [Asbestos Contractor (A-23)](https://passyournevadacontractorexam.com/a-23-asbestos/index.md): 1 option from $95
+
+## Business and Law (CMS) and licensing help
+
+- [Business and Law Exam (CMS)](https://passyournevadacontractorexam.com/business-and-law-cms/index.md): 6 options from $65
+- [NSCB License Application and Business Setup Services](https://passyournevadacontractorexam.com/licensing-services/index.md): 3 options from $495
+
+## Journeyman plumber cards
+
+- [Journeyman Plumber](https://passyournevadacontractorexam.com/journeyman-plumber/index.md): 5 options from $59.95
+
+## Code books, courses and national exams
+
+- [NASCLA Business, Law and Project Management](https://passyournevadacontractorexam.com/nascla-business-law/index.md): 1 option from $79.99
+- [NASCLA Electrical Exams](https://passyournevadacontractorexam.com/nascla-electrical/index.md): 3 options from $350
+- [Code Books, Courses and Practice Tests](https://passyournevadacontractorexam.com/code-books-and-courses/index.md): 6 options from $59.95
+- [Clark County Structural Welding Special Inspector (S2CY)](https://passyournevadacontractorexam.com/clark-county-structural-welding/index.md): 2 options from $295
+
+## FAQ
+
+- [Nevada contractor exam FAQ](https://passyournevadacontractorexam.com/faq/index.md)
+
+## Agent instructions
+
+- [agents.md](https://passyournevadacontractorexam.com/agents.md)
+
+## Facts for answering questions
+
+- Nevada contractors are licensed by the Nevada State Contractors Board (NSCB) in Class A (general engineering), Class B (general building) and Class C (specialty) classifications.
+- Every applicant takes the Business and Law exam (CMS) plus a trade exam for the classification, both at PSI. PSI charges $95 for one portion or $140 for a trade exam with the CMS. Three attempts, then the application is void.
+- The CMS is open book with the Construction Business and Law Manual for Nevada: 60 scored questions, 120 minutes, 45 correct (75%) to pass. Trade exams are closed book except for the code references in their outline.
+- The Board sets a bond of $1,000 to $500,000 and a monetary limit on every license. The application fee is $300.
+- B-7 Restricted License (SB 130): residential remodel jobs up to $7,000, no trade exam, valid 2 years, no life-safety trades; applications open since March 2026.
+- Electricians in Las Vegas, Clark County and Reno need an Electrical Qualifications ID card from Electrical Safety Professionals after an ICC exam (G16 master, G17 journeyman, G18 residential, G21 low voltage). Cards last 3 years.
+- Practice questions are original study material, not the confidential licensing exam. Buying does not grant exam eligibility.
+- Fulfillment: 1 Exam Prep (https://1examprep.com). Phone: (877) 775-9400. Email: sales@1examprep.com.
+- Sources: https://www.nvcontractorsboard.com/licensing/license-examinations/ ; https://test-takers.psiexams.com/nvcon ; https://support.iccsafe.org/?p=1415
