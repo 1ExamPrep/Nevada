@@ -78,7 +78,7 @@ $1,095 (was $1,195) Save 8%  to $1,695
 Books Allowed in the Exam
 [Nevada Concrete Contractor (C-5) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-5-concrete/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $545 (was $645) Save 16%  to $795
 [Buy now](https://1examprep.com/cart/46371005071417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-5-concrete/exam-room-books/)

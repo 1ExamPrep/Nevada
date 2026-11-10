@@ -58,7 +58,7 @@ $1,095 (was $1,195) Save 8%
 Books Allowed in the Exam
 [Nevada Residential Spas Contractor (A-10B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-10b-residential-spas/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $145 (was $245) Save 41%
 [Buy now](https://1examprep.com/cart/45815113449529:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-10b-residential-spas/exam-room-books/)

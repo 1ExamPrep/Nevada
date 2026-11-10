@@ -86,7 +86,7 @@ $1,395 (was $1,495) Save 7%  to $1,995
 Books Allowed in the Exam
 [Nevada General Building Contractor (B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-general-building/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $695 (was $795) Save 13%  to $995
 [Buy now](https://1examprep.com/cart/46374467305529:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-general-building/exam-room-books/)

@@ -58,7 +58,7 @@ $195 (was $295) Save 34%
 Books Allowed in the Exam
 [Nevada Drilling Wells Contractor (C-23) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-23-drilling-wells/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $29 (was $39) Save 26%
 [Buy now](https://1examprep.com/cart/45815327260729:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-23-drilling-wells/exam-room-books/)

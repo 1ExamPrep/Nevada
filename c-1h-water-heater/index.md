@@ -58,7 +58,7 @@ $345 (was $445) Save 22%
 Books Allowed in the Exam
 [Nevada Water Heater Contractor (C-1H) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1h-water-heater/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
 [Buy now](https://1examprep.com/cart/45815211917369:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1h-water-heater/exam-room-books/)

@@ -58,7 +58,7 @@ $795 (was $895) Save 11%
 Books Allowed in the Exam
 [Nevada Pipe And Duct Insulation Contractor(C-1C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1c-pipe-and-duct-insulation/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
 [Buy now](https://1examprep.com/cart/45815187603513:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1c-pipe-and-duct-insulation/exam-room-books/)

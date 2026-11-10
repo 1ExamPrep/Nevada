@@ -58,7 +58,7 @@ $245 (was $345) Save 29%
 Books Allowed in the Exam
 [Nevada Sewers, Drains, And Pipes Contractor (A-15) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $15 (was $115) Save 87%
 [Buy now](https://1examprep.com/cart/45815175512121:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/a-15-sewers-drains-and-pipes/exam-room-books/)

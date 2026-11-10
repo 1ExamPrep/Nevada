@@ -78,7 +78,7 @@ $1,395 (was $1,495) Save 7%  to $1,995
 Books Allowed in the Exam
 [Nevada Residential And Small Commercial (B-2) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $795 (was $895) Save 11%  to $1,095
 [Buy now](https://1examprep.com/cart/46390414966841:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/exam-room-books/)

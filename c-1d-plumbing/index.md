@@ -58,7 +58,7 @@ $1,545 (was $1,645) Save 6%
 Books Allowed in the Exam
 [Nevada Plumbing Contractor (C-1D) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1d-plumbing/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $945 (was $1,045) Save 10%
 [Buy now](https://1examprep.com/cart/45815190519865:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1d-plumbing/exam-room-books/)

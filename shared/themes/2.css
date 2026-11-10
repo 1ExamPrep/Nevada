@@ -83,3 +83,7 @@ h2::before{content:"";display:block;width:42px;height:4px;border-radius:2px;back
   .hero:not(.hero--class)::before{inset:auto 0 0 0;height:19rem;background:url("../hero-nevada-sm.webp") center top/cover no-repeat}
   .hero:not(.hero--class)::after{background:linear-gradient(180deg,#05203a calc(100% - 19rem),rgba(5,32,58,.35) calc(100% - 13rem),rgba(5,32,58,0) 100%)}
 }
+
+/* package cards: show the whole Shopify product photo (they are square) instead of cropping it */
+.pc-img,.sg .pc-img{aspect-ratio:1/1;background:#fff;border-bottom:1px solid var(--line)}
+.pc-img img{object-fit:contain}

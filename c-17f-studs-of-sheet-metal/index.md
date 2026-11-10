@@ -78,7 +78,7 @@ $425 (was $525) Save 19%  to $695
 Books Allowed in the Exam
 [Nevada Studs of Sheet Metal Contractor (C-17F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-17f-studs-of-sheet-metal/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
 [Buy now](https://1examprep.com/cart/46393004687417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-17f-studs-of-sheet-metal/exam-room-books/)

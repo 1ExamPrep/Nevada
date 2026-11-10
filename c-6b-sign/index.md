@@ -58,7 +58,7 @@ $595 (was $695) Save 14%
 Books Allowed in the Exam
 [Nevada Sign Contractor (C-6B) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-6b-sign/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $345 (was $445) Save 22%
 [Buy now](https://1examprep.com/cart/45815313301561:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-6b-sign/exam-room-books/)

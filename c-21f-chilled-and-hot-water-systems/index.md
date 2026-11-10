@@ -58,7 +58,7 @@ $945 (was $1,045) Save 10%
 Books Allowed in the Exam
 [Nevada Chilled and Hot Water Systems Contractor (C-21F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $495 (was $595) Save 17%
 [Buy now](https://1examprep.com/cart/45815324704825:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-21f-chilled-and-hot-water-systems/exam-room-books/)

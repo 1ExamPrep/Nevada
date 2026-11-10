@@ -50,7 +50,7 @@ Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Det
 Books Allowed in the Exam
 [Nevada Fire Detection Contractor (C-41C) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-41c-fire-detection/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $495 (was $595) Save 17%  to $695
 [Buy now](https://1examprep.com/cart/46374397083705:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-41c-fire-detection/exam-room-books/)

@@ -219,7 +219,7 @@ def card_html(p, rel):
     more = ('<small style="color:var(--muted)"> to %s</small>' % money(p["maxPrice"])) if p.get("maxPrice") and float(p["maxPrice"]) > n else ""
     return ('<div class="sg" data-id="%s"><a class="pc-img" href="%s%s"><img src="%s" alt="%s" loading="lazy"></a><div class="pc-body"><span class="pc-tier">%s%s</span><p class="pc-name"><a href="%s%s" style="color:inherit;text-decoration:none">%s</a></p><p class="pc-what">%s.</p>'
             '<div class="pc-price"><span class="pc-now">%s</span>%s%s</div><div class="pc-actions"><a class="btn btn-buy" href="%s" rel="noopener" data-buy="%s">Buy now</a><a class="btn btn-details" href="%s%s">Details</a></div></div></div>'
-            % (p["id"], rel, p["path"], esc(p["image"]), esc(p["short"]), esc(p["typeName"]), esc(region_note(p)), rel, p["path"], esc(p["short"]), esc(vacopy.TYPE_BLURB.get(p["type"], "exam prep").capitalize()), money(n), save, more, cart(p["variants"][0]["id"]), p["id"], rel, p["path"]))
+            % (p["id"], rel, p["path"], esc(p["image"]), esc(p["short"]), esc(p["typeName"]), esc(region_note(p)), rel, p["path"], esc(p["short"]), esc(cap1(vacopy.TYPE_BLURB.get(p["type"], "exam prep"))), money(n), save, more, cart(p["variants"][0]["id"]), p["id"], rel, p["path"]))
 
 def render(path_parts, title, desc, main, og_image=None, extra_ld=(), page_type="WebPage", route=None, sticky="", cta=None):
     rel = "../" * len(path_parts); path = "/".join(path_parts) + ("/" if path_parts else "")
@@ -267,6 +267,9 @@ def assets_head(rel):
 def scope(c):
     if c["group"] == "officials": return vacopy.OFFICIAL_SCOPE.format(name=c["name"])
     return vacopy.SCOPE.get(c["slug"], "%s exam prep for the Nevada license." % c["name"])
+def cap1(t):
+    """Upper-case the first letter only (str.capitalize() would turn PSI into psi)."""
+    return t[:1].upper() + t[1:]
 def prep(c, cap=False):
     """'B-2 ... exam prep' for a license; services that are not an exam (vacopy.NOT_EXAMS) keep their own name."""
     if c["slug"] in getattr(vacopy, "NOT_EXAMS", ()): return c["name"]

@@ -78,7 +78,7 @@ $425 (was $525) Save 19%  to $695
 Books Allowed in the Exam
 [Nevada Sheet Metal Studs Contractor (C4-F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
 [Buy now](https://1examprep.com/cart/46392644239417:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-4f-sheet-metal-studs/exam-room-books/)

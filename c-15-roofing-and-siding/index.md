@@ -86,7 +86,7 @@ $1,195 (was $1,295) Save 8%  to $1,695
 Books Allowed in the Exam
 [Nevada Roofing and Siding Contractor (C-15) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
 [Buy now](https://1examprep.com/cart/46390892199993:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-15-roofing-and-siding/exam-room-books/)

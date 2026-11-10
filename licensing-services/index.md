@@ -50,7 +50,7 @@ Buy now adds the item to your cart and opens secure checkout at 1 Exam Prep. Det
 LLC or Corporation Setup
 [Nevada Corporation or LLC Filing Registration Formation Setup](https://passyournevadacontractorexam.com/licensing-services/llc-formation/)
 
-Forming the nevada llc or corporation the license goes under.
+Forming the Nevada LLC or corporation the license goes under.
 
 $695 (was $795) Save 13%  to $950
 [Buy now](https://1examprep.com/cart/45955603398713:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/licensing-services/llc-formation/)
@@ -58,7 +58,7 @@ $695 (was $795) Save 13%  to $950
 Application and Business Formation Package
 [Nevada Contractor Application Processing & Business Formation Ultimate Package](https://passyournevadacontractorexam.com/licensing-services/application-business-package/)
 
-The nscb application plus business formation.
+The NSCB application plus business formation.
 
 $1,190 (was $1,300) Save 8%  to $1,445
 [Buy now](https://1examprep.com/cart/45956382326841:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/licensing-services/application-business-package/)
@@ -66,7 +66,7 @@ $1,190 (was $1,300) Save 8%  to $1,445
 Licensing Service
 [Nevada Contractor License Application Service](https://passyournevadacontractorexam.com/licensing-services/licensing-service/)
 
-Help preparing and filing the nscb license application.
+Help preparing and filing the NSCB license application.
 
 $495 (was $695) Save 29%
 [Buy now](https://1examprep.com/cart/45954423750713:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/licensing-services/licensing-service/)

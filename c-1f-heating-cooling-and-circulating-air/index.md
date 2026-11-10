@@ -58,7 +58,7 @@ $595 (was $695) Save 14%
 Books Allowed in the Exam
 [Nevada Heating, Cooling, And Circulating Air Contractor (C-1F) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
 [Buy now](https://1examprep.com/cart/45815203659833:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1f-heating-cooling-and-circulating-air/exam-room-books/)

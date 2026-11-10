@@ -78,7 +78,7 @@ $495 (was $545) Save 9%  to $795
 Books Allowed in the Exam
 [Nevada Carpentry, Maintenance, And Minor Repairs Contractor (C-3) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%  to $399
 [Buy now](https://1examprep.com/cart/46368310034489:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/exam-room-books/)

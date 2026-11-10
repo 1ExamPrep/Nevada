@@ -74,7 +74,7 @@ $995 (was $1,095) Save 9%  to $1,395
 Books Allowed in the Exam
 [Nevada Electrical Contractor (C-2) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-2-electrical/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $495 (was $595) Save 17%  to $695
 [Buy now](https://1examprep.com/cart/46374284722233:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-2-electrical/exam-room-books/)

@@ -86,7 +86,7 @@ $59.95 (was $70) Save 14%  to $144.95
 Study Guide + NEC with Tabs
 [Nevada 2020 Master Electrician Study Guide & National Electrical Code Combo with Tabs](https://passyournevadacontractorexam.com/master-electrician/study-guide-nec-tabs-2020/)
 
-The study guide, the national electrical code and tabs.
+The study guide, the National Electrical Code and tabs.
 
 $240 (was $275) Save 13%
 [Buy now](https://1examprep.com/cart/31820132122681:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/study-guide-nec-tabs-2020/)
@@ -94,7 +94,7 @@ $240 (was $275) Save 13%
 Study Guide + NEC with Tabs
 [2023 Nevada Master Electrician Study Guide & National Electrical Code Combo with Tabs](https://passyournevadacontractorexam.com/master-electrician/study-guide-nec-tabs-2023/)
 
-The study guide, the national electrical code and tabs.
+The study guide, the National Electrical Code and tabs.
 
 $249.95 (was $280) Save 11%  to $339.95
 [Buy now](https://1examprep.com/cart/46206877139001:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/study-guide-nec-tabs-2023/)
@@ -102,7 +102,7 @@ $249.95 (was $280) Save 11%  to $339.95
 Study Guide + NEC with Tabs
 [2026 Nevada Master Electrician Study Guide & National Electrical Code Combo with Tabs](https://passyournevadacontractorexam.com/master-electrician/study-guide-nec-tabs-2026/)
 
-The study guide, the national electrical code and tabs.
+The study guide, the National Electrical Code and tabs.
 
 $249.95 (was $350) Save 29%  to $339.95
 [Buy now](https://1examprep.com/cart/45974083665977:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/study-guide-nec-tabs-2026/)
@@ -110,7 +110,7 @@ $249.95 (was $350) Save 29%  to $339.95
 Study Guide + Calculations + NEC
 [2023 Nevada Master Electrician + Electrician Calculations Study Guides & National Electrical Code Combo](https://passyournevadacontractorexam.com/master-electrician/study-guide-calculations-nec-2023/)
 
-The study guide, the calculations guide and the national electrical code.
+The study guide, the calculations guide and the National Electrical Code.
 
 $279.95 (was $315) Save 11%  to $399.95
 [Buy now](https://1examprep.com/cart/46209510506553:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/study-guide-calculations-nec-2023/)
@@ -118,7 +118,7 @@ $279.95 (was $315) Save 11%  to $399.95
 Study Guide + Calculations + NEC
 [2026 Nevada Master Electrician + Electrician Calculations Study Guides & National Electrical Code Combo](https://passyournevadacontractorexam.com/master-electrician/study-guide-calculations-nec-2026/)
 
-The study guide, the calculations guide and the national electrical code.
+The study guide, the calculations guide and the National Electrical Code.
 
 $279.95 (was $315) Save 11%  to $399.95
 [Buy now](https://1examprep.com/cart/46207365382201:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/study-guide-calculations-nec-2026/)
@@ -126,7 +126,7 @@ $279.95 (was $315) Save 11%  to $399.95
 Super Combo
 [2023 Nevada Master Electrician + Electrician Calculations Study Guides + Flash Cards & National Electrical Code + Tabs Super Combo](https://passyournevadacontractorexam.com/master-electrician/super-combo-2023/)
 
-Study guide, calculations guide, flash cards, the nec and tabs.
+Study guide, calculations guide, flash cards, the NEC and tabs.
 
 $349.95 (was $395) Save 11%  to $399.95
 [Buy now](https://1examprep.com/cart/46209469317177:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/super-combo-2023/)
@@ -134,7 +134,7 @@ $349.95 (was $395) Save 11%  to $399.95
 Super Combo
 [2026 Nevada Master Electrician + Electrician Calculations Study Guides + Flash Cards & National Electrical Code + Tabs Super Combo](https://passyournevadacontractorexam.com/master-electrician/super-combo-2026/)
 
-Study guide, calculations guide, flash cards, the nec and tabs.
+Study guide, calculations guide, flash cards, the NEC and tabs.
 
 $349.95 (was $395) Save 11%  to $399.95
 [Buy now](https://1examprep.com/cart/46213812060217:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/super-combo-2026/)
@@ -170,7 +170,7 @@ $399.95 (was $495) Save 19%  to $499.95
 Study Package with NEC Course
 [2023 Nevada Master Electrician Exam Prep Study Package Includes Instructor Led NEC Course](https://passyournevadacontractorexam.com/master-electrician/nec-course-package-2023/)
 
-Study package plus an nec course.
+Study package plus an NEC course.
 
 $499.95 (was $650) Save 23%
 [Buy now](https://1examprep.com/cart/46283325866041:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/nec-course-package-2023/)
@@ -178,7 +178,7 @@ $499.95 (was $650) Save 23%
 Study Package with NEC Course
 [2026 Nevada Master Electrician Exam Prep Study Package Includes Instructor Led NEC Course](https://passyournevadacontractorexam.com/master-electrician/nec-course-package-2026/)
 
-Study package plus an nec course.
+Study package plus an NEC course.
 
 $499.95 (was $650) Save 23%
 [Buy now](https://1examprep.com/cart/46294959620153:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/master-electrician/nec-course-package-2026/)

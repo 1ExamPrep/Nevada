@@ -58,7 +58,7 @@ $295 (was $395) Save 25%
 Books Allowed in the Exam
 [Nevada Solar Pool Heating Contractor (C-37D) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-37d-solar-pool-heating/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $199 (was $299) Save 33%
 [Buy now](https://1examprep.com/cart/45815333781561:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-37d-solar-pool-heating/exam-room-books/)

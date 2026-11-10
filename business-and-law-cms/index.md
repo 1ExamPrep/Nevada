@@ -94,7 +94,7 @@ $225 (was $425) Save 47%  to $475
 Complete Pass Package
 [Nevada Business Contractor Management Survey Exam Complete Pass Package](https://passyournevadacontractorexam.com/business-and-law-cms/complete-pass-package/)
 
-Everything for the business and law exam in one order.
+Everything for the Business and Law exam in one order.
 
 $425.99 (was $550) Save 23%
 [Buy now](https://1examprep.com/cart/45843008356409:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/business-and-law-cms/complete-pass-package/)

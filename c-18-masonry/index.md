@@ -78,7 +78,7 @@ $595 (was $695) Save 14%  to $895
 Books Allowed in the Exam
 [Nevada Masonry Contractor (C-18) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $395 (was $495) Save 20%  to $595
 [Buy now](https://1examprep.com/cart/46378733404217:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-18-masonry/exam-room-books/)

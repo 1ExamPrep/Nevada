@@ -58,7 +58,7 @@ $2,145 (was $2,245) Save 4%
 Books Allowed in the Exam
 [Nevada Industrial Piping Contractor (C-1K) Books Allowed into Exam Package](https://passyournevadacontractorexam.com/c-1k-industrial-piping/exam-room-books/)
 
-The references psi allows in the exam room.
+The references PSI allows in the exam room.
 
 $445 (was $545) Save 18%
 [Buy now](https://1examprep.com/cart/45815239508025:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-1k-industrial-piping/exam-room-books/)
