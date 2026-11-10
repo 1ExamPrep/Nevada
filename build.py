@@ -337,7 +337,7 @@ def lic_thumb(c):
     ps = [p for p in c["products"] if p.get("image")]
     if not ps: return ""
     p = min(ps, key=lambda p: (THUMB_PREFER.index(p["type"]) if p["type"] in THUMB_PREFER else 99, p["region"] != vaclass.STATE))
-    return '<img class="va-thumb" src="%s" alt="" width="40" height="40" loading="lazy" decoding="async">' % esc(thumb_url(p["image"]))
+    return '<img class="va-thumb" src="%s" alt="%s" width="40" height="40" loading="lazy" decoding="async">' % (esc(thumb_url(p["image"])), esc(p["short"]))
 
 def home_main():
     lead = vacopy.HOME_LEAD.format(n=n_cls)
