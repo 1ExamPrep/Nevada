@@ -323,6 +323,18 @@ generated, urls = [], []
 # ---------- home ----------
 n_cls, n_prod = len(CLASSES), len(PRODUCTS)
 lowest = min(float(p["price"]) for p in PRODUCTS)
+THUMB_PREFER = ("highlighted-tabbed", "exam-room-books-highlighted", "book-package", "exam-room-books", "ultimate-combo", "complete-package", "study-guide")
+def thumb_url(u, w=96):
+    """A small copy of a Shopify product photo (the CDN resizes on the fly)."""
+    if "cdn.shopify.com" not in u: return u
+    return u + ("&" if "?" in u else "?") + "width=%d" % w
+def lic_thumb(c):
+    """Small round photo for a license on the home page: a book package where there is one, so the photos look alike."""
+    ps = [p for p in c["products"] if p.get("image")]
+    if not ps: return ""
+    p = min(ps, key=lambda p: (THUMB_PREFER.index(p["type"]) if p["type"] in THUMB_PREFER else 99, p["region"] != vaclass.STATE))
+    return '<img class="va-thumb" src="%s" alt="" width="40" height="40" loading="lazy" decoding="async">' % esc(thumb_url(p["image"]))
+
 def home_main():
     lead = vacopy.HOME_LEAD.format(n=n_cls)
     gopts = "".join('<option value="%s">%s</option>' % (g, esc(gn)) for g, gn, _ in vaclass.GROUPS if classes_in(g))
@@ -343,7 +355,7 @@ def home_main():
         cl = classes_in(g)
         if not cl: continue
         items = '<li class="va-lh" aria-hidden="true"><span>License</span><span>Options</span><span>Starting price</span></li>' + "".join(
-            '<li><a class="va-lic" href="%s/"><b>%s</b><span class="va-n">%s</span><span class="va-p"><small>from</small> %s</span></a></li>' % (c["slug"], esc(c["name"]), plural(len(c["products"]), "option"), money(c["lo"])) for c in cl)
+            '<li><a class="va-lic" href="%s/">%s<b>%s</b><span class="va-n">%s</span><span class="va-p"><small>from</small> %s</span></a></li>' % (c["slug"], lic_thumb(c), esc(c["name"]), plural(len(c["products"]), "option"), money(c["lo"])) for c in cl)
         secs.append('<section id="%s" class="va-group" aria-labelledby="h-%s"><div class="wrap"><h2 id="h-%s">%s</h2><p class="sub-h">%s</p><ul class="va-lics">%s</ul></div></section>' % (g, g, g, esc(gname), esc(gblurb), items))
     T = vacopy.HOME_TABLE
     trs = "".join("<tr>%s</tr>" % "".join('<td%s>%s</td>' % (' class="col-hot"' if i == T["hot"] else "", esc(x)) for x in r) for i, r in enumerate(T["rows"]))
