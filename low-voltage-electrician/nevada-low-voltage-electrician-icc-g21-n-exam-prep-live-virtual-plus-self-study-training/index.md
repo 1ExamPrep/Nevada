@@ -1,7 +1,7 @@
 ---
 title: Low Voltage Electrician (ICC G21) Live Virtual Training
 url: https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-prep-live-virtual-plus-self-study-training/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Live Virtual Training for the Nevada Low Voltage Electrician (ICC G21) exam: live virtual classes plus self-study. $495. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $495 (was $695) Save 29% [Buy now, go to checkout](https://1examprep.com/cart/46
 - Nevada has no state electrician license; Las Vegas, Clark County and Reno require an Electrical Qualifications ID card on every job site.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Live Virtual Training include?
 
@@ -62,7 +62,7 @@ Ugly's Electrical References complements NEC preparation by providing compact ac
 
 Because this is a seminar-style training program that covers National Electrical Code navigation, low-voltage circuit classifications, signaling systems, communications wiring, alarm circuits, optical fiber installations, grounding, bonding, wiring methods, cable support, separation requirements, testing concepts, and electrical calculations, you only need to attend the sessions covering the books and subjects included with your specific exam.
 
-## [Live Class Schedule
+## [Live Class Schedule](https://1examprep.com/pages/live-classes)
 
 The live training schedule is organized around the books and technical references used on the exam.
 
@@ -70,7 +70,7 @@ Because this is a seminar-style training program that covers the 2017 National E
 
 The live virtual classes complement the complete online course and recorded instruction. Students can begin with self-paced lessons, attend applicable live sessions for guided review, and return to the recordings whenever they need additional help with an NEC article, cable classification, grounding rule, circuit requirement, installation limitation, electrical formula, or reference-navigation method.
 
-[**Click Here to View the Current Live Class Schedule**
+[**Click Here to View the Current Live Class Schedule**](https://1examprep.com/pages/live-classes)
 
 ## What You Get
 
@@ -309,7 +309,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

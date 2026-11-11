@@ -1,7 +1,7 @@
 ---
 title: Code Books, Courses and Practice Tests Online Practice
 url: https://passyournevadacontractorexam.com/code-books-and-courses/online-practice-exam-for-code-of-federal-regulations-osha-29-part-1926/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Online Practice Questions for the Nevada Code Books, Courses and Practice Tests exam: timed practice questions online. $59.95. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $59.95 (was $66.95) Save 10% [Buy now, go to checkout](https://1examprep.com/car
 - ICC and NASCLA exams are national exams; each candidate bulletin lists the references allowed and the code edition.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Practice Questions include?
 
@@ -515,7 +515,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 - [ICC: Nevada exam and ID card program](https://support.iccsafe.org/?p=1415)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Carpentry, Maintenance and Minor Repairs Contractor Live
 url: https://passyournevadacontractorexam.com/c-3-carpentry-maintenance-and-minor-repairs/nevada-carpentry-maintenance-and-minor-repairs-contractor-c-3-exam-prep-live-virtual-plus-self-study-training/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Live Virtual Training for the Nevada Carpentry, Maintenance and Minor Repairs Contractor (C-3) exam: live virtual classes plus self-study. $595. One-click.
 ---
@@ -27,7 +27,7 @@ $595 (was $795) Save 25% [Buy now, go to checkout](https://1examprep.com/cart/46
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Live Virtual Training include?
 
@@ -61,7 +61,7 @@ The Nevada C-3 Carpentry Contractor exam preparation process should include cons
 
 ### Live Class Schedule
 
-[Live Class Schedule The live training schedule is organized around the books and technical references used on the exam. [Click Here to View the Current Live Class Schedule
+[Live Class Schedule](https://1examprep.com/pages/live-classes) The live training schedule is organized around the books and technical references used on the exam. [Click Here to View the Current Live Class Schedule](https://1examprep.com/pages/live-classes)
 
 ## Exam Details
 
@@ -187,7 +187,7 @@ The product includes live virtual training and self-study support designed to he
 
 ### Where can I view the live class schedule?
 
-The live training schedule is available through the [Live Class Schedule.
+The live training schedule is available through the [Live Class Schedule](https://1examprep.com/pages/live-classes).
 
 ### What references are used for this training?
 
@@ -284,7 +284,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

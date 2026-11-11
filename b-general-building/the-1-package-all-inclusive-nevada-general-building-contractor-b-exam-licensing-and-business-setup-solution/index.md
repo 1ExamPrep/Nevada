@@ -1,7 +1,7 @@
 ---
 title: General Building Contractor: The 1 Package (all-inclusive)
 url: https://passyournevadacontractorexam.com/b-general-building/the-1-package-all-inclusive-nevada-general-building-contractor-b-exam-licensing-and-business-setup-solution/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: The 1 Package (all-inclusive) for the Nevada General Building Contractor (B) exam: exam prep, books, paperwork and business setup. $4,010. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $4,010 (was $4,510) Save 11% [Buy now, go to checkout](https://1examprep.com/car
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the The 1 Package (all-inclusive) include?
 
@@ -341,7 +341,7 @@ It adds help with the NSCB license application and the business setup, so the pa
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

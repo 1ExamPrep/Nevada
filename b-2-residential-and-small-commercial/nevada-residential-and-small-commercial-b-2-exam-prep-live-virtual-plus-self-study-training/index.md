@@ -1,7 +1,7 @@
 ---
 title: Residential and Small Commercial Contractor Live Virtual
 url: https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-b-2-exam-prep-live-virtual-plus-self-study-training/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Live Virtual Training for the Nevada Residential and Small Commercial Contractor (B-2) exam: live virtual classes plus self-study. $595. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $595 (was $795) Save 25% [Buy now, go to checkout](https://1examprep.com/cart/46
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Live Virtual Training include?
 
@@ -63,7 +63,7 @@ The Nevada B-2 preparation process should include steady review of every listed 
 
 ### Live Class Schedule
 
-[Live Class Schedule The live training schedule is organized around the books and technical references used on the exam. [Click Here to View the Current Live Class Schedule
+[Live Class Schedule](https://1examprep.com/pages/live-classes) The live training schedule is organized around the books and technical references used on the exam. [Click Here to View the Current Live Class Schedule](https://1examprep.com/pages/live-classes)
 
 ## Exam Details
 
@@ -210,7 +210,7 @@ The product includes live virtual training and self-study support designed to he
 
 ### Where can I view the live class schedule?
 
-The live training schedule is available through the [Live Class Schedule.
+The live training schedule is available through the [Live Class Schedule](https://1examprep.com/pages/live-classes).
 
 ### What study references are used for this training?
 
@@ -301,7 +301,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

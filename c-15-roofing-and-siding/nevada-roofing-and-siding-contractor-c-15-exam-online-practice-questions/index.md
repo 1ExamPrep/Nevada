@@ -1,7 +1,7 @@
 ---
 title: Roofing and Siding Contractor: Online Practice Questions
 url: https://passyournevadacontractorexam.com/c-15-roofing-and-siding/nevada-roofing-and-siding-contractor-c-15-exam-online-practice-questions/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Online Practice Questions for the Nevada Roofing and Siding Contractor (C-15) exam: timed practice questions online. $79.99. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $79.99 (was $120) Save 33% [Buy now, go to checkout](https://1examprep.com/cart/
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Practice Questions include?
 
@@ -265,7 +265,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Refrigeration and Air Conditioning Contractor: Book Package
 url: https://passyournevadacontractorexam.com/c-21-refrigeration-and-air-conditioning/nevada-refrigeration-and-air-conditioning-contractor-c-21-exam-book-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Book Package for the Nevada Refrigeration and Air Conditioning Contractor (C-21) exam: the reference books, new and unmarked. $1,595. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $1,595 (was $1,695) Save 6% [Buy now, go to checkout](https://1examprep.com/cart
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Book Package include?
 
@@ -334,7 +334,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

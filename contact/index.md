@@ -1,7 +1,7 @@
 ---
 title: Contact Us | Pass Your Nevada Contractor Exam
 url: https://passyournevadacontractorexam.com/contact/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Questions about which Nevada license you need, which package fits your exam, or an order you already placed? Send a message with the form below or call (877).
 ---

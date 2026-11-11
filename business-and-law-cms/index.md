@@ -1,7 +1,7 @@
 ---
 title: Nevada Business and Law Exam (CMS) Exam Prep
 url: https://passyournevadacontractorexam.com/business-and-law-cms/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Business and Law Exam (CMS) exam prep for Nevada: 6 options from $65 to $425.99, including book package, code book, complete pass package. One-click checkout.
 ---
@@ -45,7 +45,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - PSI charges $95 for one exam portion and $140 for a trade exam and the CMS together.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## 6 Business and Law Exam (CMS) packages
 
@@ -191,7 +191,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [PSI: Nevada contractor management (CMS) bulletin](https://test-takers.psiexams.com/api/content/bulletin/304)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

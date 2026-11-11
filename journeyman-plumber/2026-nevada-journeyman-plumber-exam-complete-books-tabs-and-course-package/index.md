@@ -1,7 +1,7 @@
 ---
 title: Nevada Journeyman Plumber Complete Package (2026)
 url: https://passyournevadacontractorexam.com/journeyman-plumber/2026-nevada-journeyman-plumber-exam-complete-books-tabs-and-course-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Complete Package for the Nevada Journeyman Plumber exam: the books, tabs and course together. $344.99. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $344.99 (was $400) Save 14% [Buy now, go to checkout](https://1examprep.com/cart
 - Nevada journeyman plumber cards are issued by local boards, not by the Contractors Board.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Complete Package include?
 
@@ -188,7 +188,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [NSCB: license examinations](https://www.nvcontractorsboard.com/licensing/license-examinations/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

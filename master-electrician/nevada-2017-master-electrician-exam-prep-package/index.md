@@ -1,7 +1,7 @@
 ---
 title: Nevada Master Electrician (ICC G16) Exam Prep Package (2017)
 url: https://passyournevadacontractorexam.com/master-electrician/nevada-2017-master-electrician-exam-prep-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Exam Prep Package for the Nevada Master Electrician (ICC G16) exam: an exam prep package. $350. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $350 (was $390) Save 10% [Buy now, go to checkout](https://1examprep.com/cart/19
 - ICC's national electrician exams come in more than one NEC edition, and packages for the 2023 and 2026 NEC are listed here, so pick the edition named for the exam you book.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Exam Prep Package include?
 
@@ -68,7 +68,7 @@ Ray Holder's 2017 Master Electrician Exam Prep is an excellent ONLINE study-aid 
 - **2 Complete Final Exams with Answers & Analysis**
 - **Helpful Tips to Pass the Test**
 - **Simulated Exams to give you the experience you need to pass**
-- **A [downloadable copy of all the material in the 2017 Master Electrician Study [Guide!**
+- **A [downloadable](https://electricians.browntechnical.org/products/2017-masters-electrician-exam-questions-tests-online-version#) copy of all the material in the 2017 Master Electrician Study [Guide](https://electricians.browntechnical.org/products/2017-masters-electrician-exam-questions-tests-online-version#)!**
 
 4) **National Electrical Code 2017 Paperback with Tabs**;
 
@@ -126,7 +126,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

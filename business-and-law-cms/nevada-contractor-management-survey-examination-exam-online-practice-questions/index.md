@@ -1,7 +1,7 @@
 ---
 title: Nevada Business and Law Exam (CMS) Online Practice Questions
 url: https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-examination-exam-online-practice-questions/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Online Practice Questions for the Nevada Business and Law Exam (CMS) exam: timed practice questions online. $79.99. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $79.99 (was $120) Save 33% [Buy now, go to checkout](https://1examprep.com/cart/
 - The CMS has 60 scored questions in 120 minutes, plus 3 unscored ones, and you need 45 right (75 percent) to pass.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Practice Questions include?
 
@@ -253,7 +253,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [PSI: Nevada contractor management (CMS) bulletin](https://test-takers.psiexams.com/api/content/bulletin/304)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

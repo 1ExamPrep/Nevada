@@ -1,7 +1,7 @@
 ---
 title: Lines to Transmit Electricity Contractor (C-2E) Exam Prep
 url: https://passyournevadacontractorexam.com/c-2e-lines-to-transmit-electricity/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Lines to Transmit Electricity Contractor (C-2E) exam prep for Nevada: 2 options from $199 to $645, including book package, books allowed in the exam.
 ---
@@ -41,7 +41,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - The CMS is open book with the Construction Business and Law Manual for Nevada; trade exams are closed book except for the code references their outline allows.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## 2 Lines to Transmit Electricity Contractor (C-2E) packages
 
@@ -149,7 +149,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

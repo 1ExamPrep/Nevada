@@ -1,7 +1,7 @@
 ---
 title: NASCLA Commercial General Building Contractor Ultimate
 url: https://passyournevadacontractorexam.com/nascla-commercial-general-building/nevada-nascla-commercial-general-building-contractor-ultimate-exam-prep-rental-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Ultimate Rental Package for the Nevada NASCLA Commercial General Building Contractor exam: tabbed rental books, course and live training. $3,695. One-click.
 ---
@@ -27,7 +27,7 @@ $3,695 (was $4,095) Save 10% [Buy now, go to checkout](https://1examprep.com/car
 - Nevada accepts a passing NASCLA Commercial General Building score in place of the B trade exam; the CMS is still required.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Ultimate Rental Package include?
 
@@ -185,7 +185,7 @@ Yes. Rental books are returned after your exam, using the return instructions th
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Master Electrician (ICC G16) Jump Start Package (any state)
 url: https://passyournevadacontractorexam.com/master-electrician/2023-master-electrician-jump-start-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Jump Start Package for the Nevada Master Electrician (ICC G16) exam: a starter set of books and online practice. $350. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $350 (was $390) Save 10% [Buy now, go to checkout](https://1examprep.com/cart/41
 - Nevada has no state electrician license; Las Vegas, Clark County and Reno require an Electrical Qualifications ID card on every job site.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Jump Start Package include?
 
@@ -43,7 +43,7 @@ The Jump Start Package costs $350 and is written for the Master Electrician (ICC
 
 The 2023 Master Electrician Jump Start Package from Pass Your Nevada Contractor Exam provides complete study resources for candidates pursuing the Florida Master Electrician License under the Department of Business and Professional Regulation (DBPR) and the Construction Industry Licensing Board (CILB). This package includes current National Electrical Code (NEC) reference materials, business and finance preparation guides, and structured electrical theory instruction aligned with PSI examination standards. Covering topics such as electrical calculations, grounding, bonding, and safety procedures, it supports preparation for both the technical and business portions of the exam. Designed for individuals seeking state electrical contractor qualification, the course materials ensure compliance with Florida licensing statutes and equip candidates with knowledge of applicable codes, load calculations, and construction laws relevant to master-level certification.
 
-**[CLICK HERE to Add FLASH CARDS as an additional study tool based off of the study guide with 250+ Test Questions**
+**[CLICK HERE to Add FLASH CARDS as an additional study tool based off of the study guide with 250+ Test Questions](https://1examprep.com/products/2023-master-electrician-exam-flash-cards-250)**
 
 ##
 
@@ -119,7 +119,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

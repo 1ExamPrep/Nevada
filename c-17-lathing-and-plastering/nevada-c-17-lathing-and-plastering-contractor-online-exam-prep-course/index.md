@@ -1,7 +1,7 @@
 ---
 title: Lathing and Plastering Contractor: Online Exam Prep Course
 url: https://passyournevadacontractorexam.com/c-17-lathing-and-plastering/nevada-c-17-lathing-and-plastering-contractor-online-exam-prep-course/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Online Exam Prep Course for the Nevada Lathing and Plastering Contractor (C-17) exam: an online course with practice exams. $195. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $195 (was $220) Save 11% [Buy now, go to checkout](https://1examprep.com/cart/31
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Exam Prep Course include?
 
@@ -310,7 +310,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

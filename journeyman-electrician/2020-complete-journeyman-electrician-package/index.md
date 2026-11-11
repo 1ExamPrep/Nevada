@@ -1,7 +1,7 @@
 ---
 title: Journeyman Electrician: Complete Package (2020)
 url: https://passyournevadacontractorexam.com/journeyman-electrician/2020-complete-journeyman-electrician-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Complete Package for the Nevada Journeyman Electrician (ICC G17) exam: the books, tabs and course together. $350. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $350 (was $390) Save 10% [Buy now, go to checkout](https://1examprep.com/cart/39
 - ICC's national electrician exams come in more than one NEC edition, and packages for the 2023 and 2026 NEC are listed here, so pick the edition named for the exam you book.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Complete Package include?
 
@@ -223,7 +223,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

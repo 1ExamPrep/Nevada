@@ -1,7 +1,7 @@
 ---
 title: Journeyman Electrician: Jump Start Package (2023)
 url: https://passyournevadacontractorexam.com/journeyman-electrician/2023-journeyman-electrician-jump-start-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Jump Start Package for the Nevada Journeyman Electrician (ICC G17) exam: a starter set of books and online practice. $350. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $350 (was $390) Save 10% [Buy now, go to checkout](https://1examprep.com/cart/41
 - The ICC G17 Journeyman Electrician exam has 80 questions in 4 hours and is open book with the NEC.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Jump Start Package include?
 
@@ -230,7 +230,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

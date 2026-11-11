@@ -1,7 +1,7 @@
 ---
 title: Journeyman Electrician (ICC G17) Books and Courses Rental
 url: https://passyournevadacontractorexam.com/journeyman-electrician/reno-nevada-journeyman-electrician-icc-r17-books-and-courses-rental-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Books and Courses Rental for the Nevada Journeyman Electrician (ICC G17) exam: rental books plus the online course. $1,090. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $1,090 (was $1,390) Save 22% [Buy now, go to checkout](https://1examprep.com/car
 - The ICC G17 Journeyman Electrician exam has 80 questions in 4 hours and is open book with the NEC.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Books and Courses Rental include?
 
@@ -282,7 +282,7 @@ Yes. Rental books are returned after your exam, using the return instructions th
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

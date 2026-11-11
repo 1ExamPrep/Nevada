@@ -1,7 +1,7 @@
 ---
 title: Residential and Small Commercial Contractor (B-2) Exam Prep
 url: https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Residential and Small Commercial Contractor (B-2) exam prep for Nevada: 12 options from $79.99 to $4,010, including book package, books allowed in the exam.
 ---
@@ -41,7 +41,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - The CMS is open book with the Construction Business and Law Manual for Nevada; trade exams are closed book except for the code references their outline allows.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## Residential and Small Commercial Contractor (B-2) options: online courses and practice
 
@@ -253,7 +253,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

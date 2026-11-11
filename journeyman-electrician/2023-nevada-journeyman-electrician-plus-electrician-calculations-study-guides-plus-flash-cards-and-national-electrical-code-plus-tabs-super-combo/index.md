@@ -1,7 +1,7 @@
 ---
 title: Nevada Journeyman Electrician (ICC G17) Super Combo (2023)
 url: https://passyournevadacontractorexam.com/journeyman-electrician/2023-nevada-journeyman-electrician-plus-electrician-calculations-study-guides-plus-flash-cards-and-national-electrical-code-plus-tabs-super-combo/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Super Combo for the Nevada Journeyman Electrician (ICC G17) exam: study guide, calculations guide, flash cards, the NEC and tabs. $349.95. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $349.95 (was $395) Save 11% [Buy now, go to checkout](https://1examprep.com/cart
 - The ICC G17 Journeyman Electrician exam has 80 questions in 4 hours and is open book with the NEC.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Super Combo include?
 
@@ -270,7 +270,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

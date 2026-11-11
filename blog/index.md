@@ -1,7 +1,7 @@
 ---
 title: Nevada Contractor Exam Blog: Study Tips and Rules
 url: https://passyournevadacontractorexam.com/blog/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Study plans, NSCB licensing rules and exam strategy for Nevada contractor, Business and Law and electrician exams, from Pass Your Nevada Contractor Exam.
 ---
@@ -19,7 +19,7 @@ Study plans, NSCB licensing rules and exam strategy for Nevada contractor, Busin
 - Exam prep for 86 Nevada licenses, with every rule linked to the board that sets it.
 - New posts appear in the RSS feed at /blog/feed.xml the moment they are published.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 Most people who fail a licensing exam do not fail on knowledge. They run out of time in the references, misread an exception, or bring the wrong edition. New posts land here first and in the [RSS feed](https://passyournevadacontractorexam.com/blog/feed.xml). When a post is about one license, it links straight to that license page so you can act on it.
 
@@ -98,7 +98,7 @@ Exam prep for every Nevada contractor classification, the Business and Law exam 
 - [PSI: Nevada contractor exams](https://test-takers.psiexams.com/nvcon)
 - [ICC: Nevada electrician exam and ID card program](https://support.iccsafe.org/?p=1415)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: NASCLA Commercial General Building Contractor Online Exam
 url: https://passyournevadacontractorexam.com/nascla-commercial-general-building/nevada-nascla-commercial-general-building-contractor-online-exam-prep-course/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Online Exam Prep Course for the Nevada NASCLA Commercial General Building Contractor exam: an online course with practice exams. $395. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $395 (was $440) Save 10% [Buy now, go to checkout](https://1examprep.com/cart/45
 - Nevada accepts a passing NASCLA Commercial General Building score in place of the B trade exam; the CMS is still required.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Exam Prep Course include?
 
@@ -54,7 +54,7 @@ Choose between a self-paced online study course or instructor-led virtual classe
 
 - **🖥️ Online Self-Study Exam Prep**: Get 1-year access to a self-paced, online course packed with essential resources to help you prepare ($395).
 
-- **🧑💻 Online Self-Study + Instructor-Led Virtual Classes**: Combine 1-year access to the self-study course with weekly live virtual classes led by industry experts for an interactive learning experience. **Virtual classes are recorded and available for on-demand viewing**, so you can review anytime at your convenience ($695). See [Class Schedule.
+- **🧑💻 Online Self-Study + Instructor-Led Virtual Classes**: Combine 1-year access to the self-study course with weekly live virtual classes led by industry experts for an interactive learning experience. **Virtual classes are recorded and available for on-demand viewing**, so you can review anytime at your convenience ($695). See [Class Schedule](https://1examprep.com/pages/florida-contractors-school).
 
 **Course Features:**
 
@@ -149,7 +149,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: NASCLA Commercial General Building Contractor Books and
 url: https://passyournevadacontractorexam.com/nascla-commercial-general-building/nevada-nascla-commercial-general-building-contractor-exam-book-rental/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Books and Courses Rental for the Nevada NASCLA Commercial General Building Contractor exam: rental books plus the online course. $3,299. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $3,299 (was $3,665) Save 10% [Buy now, go to checkout](https://1examprep.com/car
 - Nevada accepts a passing NASCLA Commercial General Building score in place of the B trade exam; the CMS is still required.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Books and Courses Rental include?
 
@@ -78,7 +78,7 @@ Take your preparation to the next level with **live, instructor-led virtual clas
 
 - **Live Virtual Classes **(6 months): Get real-time guidance from an expert instructor, ask questions, and reinforce key concepts in a structured learning environment. Virtual classes are recorded and available for on-demand viewing, so you can review anytime at your convenience.
 
-  - **Commercial General Building Contractor Class:** Weekly class. See [Class Schedule for details.
+  - **Commercial General Building Contractor Class:** Weekly class. See [Class Schedule](https://1examprep.com/pages/florida-contractors-school) for details.
 
 - **Highlighted and Tabbed Books**: Pre-tabbed and highlighted references for quick navigation during the open-book exams.
 
@@ -94,7 +94,42 @@ Take your preparation to the next level with **live, instructor-led virtual clas
 
 Select "Add Live-Instructor Led Virtual Classes" from the drop-down menu above.
 
-###
+***Please allow an additional 15 business days on tabbed and highlighted book package orders.***
+
+## **Included Exam Books:**
+
+The complete set of **highlighted and tabbed books** includes all required references for the **Nevada** NASCLA Commercial General Building Contractor exam:
+
+1. Construction Jobsite Management, 5th Edition
+2. Construction Project Management, 5th Edition
+3. ACI 318-19: Building Code Requirements for Structural Concrete and Commentary
+4. BCSI: Guide to Good Practice for Handling, Installing, Restraining, and Bracing of Metal Plate Connected Wood Trusses, 2025
+5. NASCLA Contractors' Guide to Business, Law and Project Management, Basic 14th Edition
+6. Erectors' Manual - Standards and Guidelines for the Erection of Pre Cast Concrete Products, 1999, 2nd Edition
+7. Training and Certification of Field Personnel for Unbonded Post-Tensioning - Level 1 Field Fundamentals, 2003, 3rd Edition
+8. SDI (Steel Deck Institute) Manual of Construction with Steel Deck, 3rd ed.
+9. Pipe and Excavation Contracting, 2011, Dave Roberts
+10. Gypsum Construction Handbook, 7th Edition, 2014
+11. Placing Reinforcing Bars, Recommended Practices,10th Edition
+12. Technical Digest No. 9 – Handling and Erection of Steel Joists and Joist Girders, 3rd Edition, 2008
+13. Modern Masonry - Brick, Block, Stone, Clois E. Kicklighter, 9th or 10th Edition
+14. Principles and Practices of Commercial Construction 11th Edition
+15. Code of Federal Regulations - 29 CFR Part 1926 (OSHA), with latest available amendments
+16. Carpentry and Building Construction, 2016 (Student Edition), John L. Feirer and Mark D. Feirer
+17. ICC 117.1 Accessible and Usable Buildings and Facilities, 2017
+18. Roofing Construction and Estimating, Daniel Atcheson
+19. The Contractor's Guide to Quality Concrete Construction, 4th Edition
+20. Green Building Fundamentals, Michael Montoya, 2011, 2nd Edition
+21. International Building Code, 2021 Edition
+22. Developing Your Stormwater Pollution Prevention Plan - A Guide for Construction Sites
+23. ANSI/EIMA 99-A-2017: Standard Exterior Insulation and Finish Systems (EIFS) and EIFS with Drainage, 2017
+
+24. Mechanical and Electrical Systems for Construction Managers,
+4th Edition, 2023
+
+## **Why Choose This Book Rental Package?**
+
+Prepare confidently for the **Nevada** NASCLA Commercial General Building Contractor exam with pre-tabbed and highlighted books, allowing for efficient navigation during the open-book exam. Gain the knowledge you need with expert-designed online content and optional live instruction tailored to your needs.
 
 ## How does the NASCLA Commercial General Building Contractor exam work?
 
@@ -152,7 +187,7 @@ Yes. Rental books are returned after your exam, using the return instructions th
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

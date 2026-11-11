@@ -1,7 +1,7 @@
 ---
 title: Business and Law Exam (CMS) Highlighted and Tabbed Books
 url: https://passyournevadacontractorexam.com/business-and-law-cms/nevada-contractor-management-survey-exam-highlighted-and-tabbed-book-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Highlighted and Tabbed Books for the Nevada Business and Law Exam (CMS) exam: the reference books already highlighted and tabbed. $225. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $225 (was $425) Save 47% [Buy now, go to checkout](https://1examprep.com/cart/46
 - The CMS has 60 scored questions in 120 minutes, plus 3 unscored ones, and you need 45 right (75 percent) to pass.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Highlighted and Tabbed Books include?
 
@@ -310,7 +310,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [PSI: Nevada contractor management (CMS) bulletin](https://test-takers.psiexams.com/api/content/bulletin/304)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

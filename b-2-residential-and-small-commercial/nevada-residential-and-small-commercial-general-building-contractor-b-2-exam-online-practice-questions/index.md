@@ -1,7 +1,7 @@
 ---
 title: Residential and Small Commercial Contractor Online Practice
 url: https://passyournevadacontractorexam.com/b-2-residential-and-small-commercial/nevada-residential-and-small-commercial-general-building-contractor-b-2-exam-online-practice-questions/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Online Practice Questions for the Nevada Residential and Small Commercial Contractor (B-2) exam: timed practice questions online. $79.99. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $79.99 (was $120) Save 33% [Buy now, go to checkout](https://1examprep.com/cart/
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Practice Questions include?
 
@@ -273,7 +273,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

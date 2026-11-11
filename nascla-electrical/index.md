@@ -1,7 +1,7 @@
 ---
 title: Nevada NASCLA Electrical Exams Exam Prep
 url: https://passyournevadacontractorexam.com/nascla-electrical/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: NASCLA Electrical Exams exam prep for Nevada: 3 options from $350 to $395, including online exam prep course. One-click checkout.
 ---
@@ -41,7 +41,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - Nevada electrician ID cards use ICC national exams, and the Clark County special inspector modules are ICC exams too.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## 3 NASCLA Electrical Exams packages
 
@@ -156,7 +156,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 - [ICC: Nevada exam and ID card program](https://support.iccsafe.org/?p=1415)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Nevada NSCB License Application and Business Setup Services
 url: https://passyournevadacontractorexam.com/licensing-services/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: NSCB License Application and Business Setup Services for Nevada: 3 options from $495 to $1,190, including application and business formation package.
 ---
@@ -41,7 +41,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - The CMS is open book: the only reference allowed is the Construction Business and Law Manual for Nevada.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## 3 NSCB License Application and Business Setup Services packages
 
@@ -154,7 +154,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [PSI: Nevada contractor management (CMS) bulletin](https://test-takers.psiexams.com/api/content/bulletin/304)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

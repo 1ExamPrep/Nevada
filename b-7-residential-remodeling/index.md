@@ -1,7 +1,7 @@
 ---
 title: Nevada Residential Remodeling Contractor (B-7) Exam Prep
 url: https://passyournevadacontractorexam.com/b-7-residential-remodeling/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Residential Remodeling Contractor (B-7) exam prep for Nevada: 8 options from $79.99 to $3,310, including book package, books and courses rental, highlighted.
 ---
@@ -45,7 +45,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - A restricted license holder may not do life-safety trades such as electrical, plumbing or HVAC work.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## 8 Residential Remodeling Contractor (B-7) packages
 
@@ -215,7 +215,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

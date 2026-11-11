@@ -1,7 +1,7 @@
 ---
 title: Roofing Contractor (C-15A) Highlighted and Tabbed Books
 url: https://passyournevadacontractorexam.com/c-15a-roofing/nevada-roofing-contractor-c-15a-highlighted-and-tabbed-book-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Highlighted and Tabbed Books for the Nevada Roofing Contractor (C-15A) exam: the reference books already highlighted and tabbed. $1,695. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $1,695 (was $1,895) Save 11% [Buy now, go to checkout](https://1examprep.com/car
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Highlighted and Tabbed Books include?
 
@@ -340,7 +340,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Nevada Roofing and Siding Contractor (C-15) Exam Prep
 url: https://passyournevadacontractorexam.com/c-15-roofing-and-siding/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Roofing and Siding Contractor (C-15) exam prep for Nevada: 13 options from $79.99 to $3,710, including book package, books allowed in the exam, books and.
 ---
@@ -41,7 +41,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - The CMS is open book with the Construction Business and Law Manual for Nevada; trade exams are closed book except for the code references their outline allows.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## Roofing and Siding Contractor (C-15) options: online courses and practice
 
@@ -261,7 +261,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

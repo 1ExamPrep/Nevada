@@ -1,7 +1,7 @@
 ---
 title: Commercial Remodeling Contractor Ultimate Exam-Room Books,
 url: https://passyournevadacontractorexam.com/b-6-commercial-remodeling/nevada-commercial-remodeling-contractor-b-6-ultimate-books-exam-room-approved-plus-course-plus-application-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Ultimate Exam-Room Books, Course and Application for the Nevada Commercial Remodeling Contractor (B-6) exam: exam-room books, course and application help.
 ---
@@ -27,7 +27,7 @@ $1,815 (was $2,215) Save 18% [Buy now, go to checkout](https://1examprep.com/car
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Ultimate Exam-Room Books, Course and Application include?
 
@@ -313,7 +313,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

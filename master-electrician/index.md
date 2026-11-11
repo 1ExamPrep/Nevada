@@ -1,7 +1,7 @@
 ---
 title: Nevada Master Electrician (ICC G16) Exam Prep
 url: https://passyournevadacontractorexam.com/master-electrician/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Master Electrician (ICC G16) exam prep for Nevada: 25 options from $59.95 to $720, including book package, books and courses rental, complete package.
 ---
@@ -41,7 +41,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - Electrical Safety Professionals (ESP) issues the cards, after you pass an ICC national exam: G17 journeyman, G16 master, G18 residential or G21 low voltage.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## Master Electrician (ICC G16) option: online courses and practice
 
@@ -370,7 +370,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Nevada General Building Contractor (B) Live Virtual Training
 url: https://passyournevadacontractorexam.com/b-general-building/nevada-general-building-contractor-b-exam-prep-live-virtual-plus-self-study-training/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Live Virtual Training for the Nevada General Building Contractor (B) exam: live virtual classes plus self-study. $595. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $595 (was $795) Save 25% [Buy now, go to checkout](https://1examprep.com/cart/46
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Live Virtual Training include?
 
@@ -49,9 +49,9 @@ The course is especially useful for candidates who already have field experience
 
 Training emphasizes the practical use of the listed references, including the International Building Code, structural concrete standards, masonry requirements, OSHA construction regulations, steel joist guidance, excavation practices, gypsum systems, Nevada One Call material, post-tensioning fundamentals, masonry construction, and quality concrete practices. Each reference supports a different part of the exam outline, making familiarity with the complete reference set an important part of preparation.
 
-### [Live Class Schedule
+### [Live Class Schedule](https://1examprep.com/pages/live-classes)
 
-The live training schedule is organized around the books and technical references used on the exam. [**Click Here to View the Current Live Class Schedule**
+The live training schedule is organized around the books and technical references used on the exam. [**Click Here to View the Current Live Class Schedule**](https://1examprep.com/pages/live-classes)
 
 ## Exam Details
 
@@ -222,7 +222,7 @@ Learn the organization of each approved reference, identify major chapters, use 
 
 ### Where can I view the live class dates?
 
-Visit the [**Live Class Schedule** to review the current training schedule.
+Visit the [**Live Class Schedule**](https://1examprep.com/pages/live-classes) to review the current training schedule.
 
 ## How does the General Building Contractor (B) exam work?
 
@@ -275,7 +275,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Concrete Contractor (C-5) Exam-Room Books and Course Rental
 url: https://passyournevadacontractorexam.com/c-5-concrete/nevada-concrete-contractor-c-5-books-and-course-rental-exam-room-approved/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Exam-Room Books and Course Rental for the Nevada Concrete Contractor (C-5) exam: rental exam-room books plus the online course. $1,385. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $1,385 (was $1,685) Save 18% [Buy now, go to checkout](https://1examprep.com/car
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Exam-Room Books and Course Rental include?
 
@@ -250,7 +250,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

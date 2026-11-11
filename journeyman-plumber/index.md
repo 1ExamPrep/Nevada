@@ -1,7 +1,7 @@
 ---
 title: Nevada Journeyman Plumber Exam Prep
 url: https://passyournevadacontractorexam.com/journeyman-plumber/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Journeyman Plumber exam prep for Nevada: 5 options from $59.95 to $344.99, including complete package, online exam prep course, study guide. One-click.
 ---
@@ -41,7 +41,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - In Reno the journeyman plumbing exam is open book and written to the 2024 Uniform Plumbing Code.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## 5 Journeyman Plumber packages
 
@@ -171,7 +171,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [NSCB: license examinations](https://www.nvcontractorsboard.com/licensing/license-examinations/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

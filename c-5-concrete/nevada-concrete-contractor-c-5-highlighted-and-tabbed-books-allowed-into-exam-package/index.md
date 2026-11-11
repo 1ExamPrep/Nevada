@@ -1,7 +1,7 @@
 ---
 title: Concrete Contractor: Highlighted and Tabbed Exam-Room Books
 url: https://passyournevadacontractorexam.com/c-5-concrete/nevada-concrete-contractor-c-5-highlighted-and-tabbed-books-allowed-into-exam-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Highlighted and Tabbed Exam-Room Books for the Nevada Concrete Contractor (C-5) exam: exam-room references, highlighted and tabbed. $795. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $795 (was $995) Save 20% [Buy now, go to checkout](https://1examprep.com/cart/46
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Highlighted and Tabbed Exam-Room Books include?
 
@@ -318,7 +318,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

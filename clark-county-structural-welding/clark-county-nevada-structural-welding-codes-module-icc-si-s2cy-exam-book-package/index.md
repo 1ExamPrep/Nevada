@@ -1,7 +1,7 @@
 ---
 title: Clark County Structural Welding Special Inspector Book
 url: https://passyournevadacontractorexam.com/clark-county-structural-welding/clark-county-nevada-structural-welding-codes-module-icc-si-s2cy-exam-book-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Book Package for the Nevada Clark County Structural Welding Special Inspector (S2CY) exam: the reference books, new and unmarked. $2,745. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $2,745 (was $2,845) Save 4% [Buy now, go to checkout](https://1examprep.com/cart
 - ICC and NASCLA exams are national exams; each candidate bulletin lists the references allowed and the code edition.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Book Package include?
 
@@ -232,7 +232,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 - [ICC: Nevada exam and ID card program](https://support.iccsafe.org/?p=1415)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Nevada Contractor Exam FAQ: 21 Answers
 url: https://passyournevadacontractorexam.com/faq/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: 21 answers about Nevada contractor, Business and Law and electrician card exams: which board issues what, what PSI charges, how the CMS works, the open and.
 ---
@@ -19,7 +19,7 @@ description: 21 answers about Nevada contractor, Business and Law and electricia
 - PSI exams cost $95 for one portion or $140 with the CMS, with three attempts.
 - Electrician ID cards come from ESP after an ICC national exam.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 How do you get licensed in Nevada? 6How do the Nevada exams work? 6How should you study for it? 4How does ordering work? 5Where are the questions for building, electrician and CMS exams? 21Where are the questions for the C trade licenses? 38Where are the questions for specialty and Class A licenses? 27
 
@@ -233,7 +233,7 @@ Exam prep for 86 Nevada licenses, from $15. Buy buttons go straight to checkout.
 - [PSI: Nevada contractor exams](https://test-takers.psiexams.com/nvcon)
 - [ICC: Nevada electrician exam and ID card program](https://support.iccsafe.org/?p=1415)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: Nevada Journeyman Plumber Study Guide (any state) (2021)
 url: https://passyournevadacontractorexam.com/journeyman-plumber/journeyman-plumber-exam-study-guide/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Study Guide for the Nevada Journeyman Plumber exam: the printed study guide with practice exams. $59.95. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $59.95 (was $66.65) Save 10% [Buy now, go to checkout](https://1examprep.com/car
 - Nevada journeyman plumber cards are issued by local boards, not by the Contractors Board.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Study Guide include?
 
@@ -114,7 +114,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [NSCB: license examinations](https://www.nvcontractorsboard.com/licensing/license-examinations/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

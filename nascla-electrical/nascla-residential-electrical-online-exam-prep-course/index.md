@@ -1,7 +1,7 @@
 ---
 title: NASCLA Electrical Exams Online Exam Prep Course (any state)
 url: https://passyournevadacontractorexam.com/nascla-electrical/nascla-residential-electrical-online-exam-prep-course/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Online Exam Prep Course for the Nevada NASCLA Electrical Exams exam: an online course with practice exams. $350. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $350 (was $389) Save 10% [Buy now, go to checkout](https://1examprep.com/cart/41
 - ICC and NASCLA exams are national exams; each candidate bulletin lists the references allowed and the code edition.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Exam Prep Course include?
 
@@ -97,7 +97,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 - [ICC: Nevada exam and ID card program](https://support.iccsafe.org/?p=1415)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

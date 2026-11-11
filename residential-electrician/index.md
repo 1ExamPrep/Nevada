@@ -1,7 +1,7 @@
 ---
 title: Nevada Residential Electrician (ICC G18) Exam Prep
 url: https://passyournevadacontractorexam.com/residential-electrician/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Residential Electrician (ICC G18) exam prep for Nevada: 15 options from $225 to $1,090, including book package, books and courses rental, exam prep package.
 ---
@@ -45,7 +45,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - Nevada has no state electrician license; Las Vegas, Clark County and Reno require an Electrical Qualifications ID card on every job site.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## Residential Electrician (ICC G18) options: online courses and practice
 
@@ -285,7 +285,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

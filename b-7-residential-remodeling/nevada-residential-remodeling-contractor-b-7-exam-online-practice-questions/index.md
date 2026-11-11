@@ -1,7 +1,7 @@
 ---
 title: Residential Remodeling Contractor: Online Practice Questions
 url: https://passyournevadacontractorexam.com/b-7-residential-remodeling/nevada-residential-remodeling-contractor-b-7-exam-online-practice-questions/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Online Practice Questions for the Nevada Residential Remodeling Contractor (B-7) exam: timed practice questions online. $79.99. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $79.99 (was $120) Save 33% [Buy now, go to checkout](https://1examprep.com/cart/
 - The B-7 Restricted License covers jobs up to $7,000 including labor and materials, needs no trade exam and is valid for 2 years.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Practice Questions include?
 
@@ -270,7 +270,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

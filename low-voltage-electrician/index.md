@@ -1,7 +1,7 @@
 ---
 title: Nevada Low Voltage Electrician (ICC G21) Exam Prep
 url: https://passyournevadacontractorexam.com/low-voltage-electrician/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Low Voltage Electrician (ICC G21) exam prep for Nevada: 5 options from $225 to $720, including book package, books and courses rental, highlighted and tabbed.
 ---
@@ -41,7 +41,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - Electrical Safety Professionals (ESP) issues the cards, after you pass an ICC national exam: G17 journeyman, G16 master, G18 residential or G21 low voltage.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## 5 Low Voltage Electrician (ICC G21) packages
 
@@ -174,7 +174,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

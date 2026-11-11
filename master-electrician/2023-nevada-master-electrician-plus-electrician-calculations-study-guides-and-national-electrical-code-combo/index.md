@@ -1,7 +1,7 @@
 ---
 title: Master Electrician: Study Guide + Calculations + NEC (2023)
 url: https://passyournevadacontractorexam.com/master-electrician/2023-nevada-master-electrician-plus-electrician-calculations-study-guides-and-national-electrical-code-combo/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Study Guide + Calculations + NEC for the Nevada Master Electrician (ICC G16) exam: the study guide, the calculations guide and the National Electrical Code.
 ---
@@ -27,7 +27,7 @@ $279.95 (was $315) Save 11% [Buy now, go to checkout](https://1examprep.com/cart
 - Nevada has no state electrician license; Las Vegas, Clark County and Reno require an Electrical Qualifications ID card on every job site.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Study Guide + Calculations + NEC include?
 
@@ -268,7 +268,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

@@ -1,7 +1,7 @@
 ---
 title: NSCB License Application and Business Setup Services LLC or
 url: https://passyournevadacontractorexam.com/licensing-services/nevada-corporation-or-llc-filing-registration-formation-setup/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: LLC or Corporation Setup for the Nevada NSCB License Application and Business Setup Services exam: forming the Nevada LLC or corporation the license goes.
 ---
@@ -27,7 +27,7 @@ $695 (was $795) Save 13% [Buy now, go to checkout](https://1examprep.com/cart/45
 - The Business and Law exam (CMS) is required for every Nevada contractor license, whatever the classification.
 - The service starts after purchase; we contact you for the details. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the LLC or Corporation Setup include?
 
@@ -264,7 +264,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [PSI: Nevada contractor management (CMS) bulletin](https://test-takers.psiexams.com/api/content/bulletin/304)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

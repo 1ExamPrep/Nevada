@@ -1,7 +1,7 @@
 ---
 title: NASCLA Commercial General Building Contractor Highlighted
 url: https://passyournevadacontractorexam.com/nascla-commercial-general-building/nevada-nascla-commercial-general-building-contractor-exam-complete-book-set-highlighted-and-tabbed/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Highlighted and Tabbed Books for the Nevada NASCLA Commercial General Building Contractor exam: the reference books already highlighted and tabbed. $2,849.
 ---
@@ -27,7 +27,7 @@ $2,849 (was $3,250) Save 12% [Buy now, go to checkout](https://1examprep.com/car
 - Nevada accepts a passing NASCLA Commercial General Building score in place of the B trade exam; the CMS is still required.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Highlighted and Tabbed Books include?
 
@@ -100,9 +100,9 @@ Some states do require contractors to pass a separate “Business and Law Exam�
 
 At Pass Your Nevada Contractor Exam, we have the proven process of passing any open book contractor exam.
 
-[Click here to purchase our online course
+[Click here to purchase our online course ](https://1examprep.com/collections/nascla-online/products/nascla-accredited-examination-national-commercial-general-building)
 
-If you have any questions: [Click Here to Chat
+If you have any questions: [Click Here to Chat](https://lc.chat/now/8783291)
 
 *All products and company names are trademarks TM or registered ® trademarks and/or copyrights of their respective holders. Use of them does not imply any affiliation with or endorsement by the respective holders.*
 
@@ -158,7 +158,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

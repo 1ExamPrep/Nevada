@@ -1,7 +1,7 @@
 ---
 title: Residential Electrician: Exam Prep Package
 url: https://passyournevadacontractorexam.com/residential-electrician/icc-g18-national-standard-residential-electrician-exam-prep-package/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Exam Prep Package for the Nevada Residential Electrician (ICC G18) exam: an exam prep package. $335. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $335 (was $375) Save 11% [Buy now, go to checkout](https://1examprep.com/cart/31
 - In Reno, the G17 and G18 exams need no pre-approval: you book them through ICC and send the score report to ESP.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Exam Prep Package include?
 
@@ -118,7 +118,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

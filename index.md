@@ -1,7 +1,7 @@
 ---
 title: Nevada Contractor Exam Prep for Every NSCB License
 url: https://passyournevadacontractorexam.com/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Nevada exam prep for 86 licenses: NSCB A, B and C classifications, the Business and Law (CMS) exam and electrician ID card exams. Books, courses and The 1.
 ---
@@ -20,7 +20,7 @@ Exam prep for 86 Nevada licenses: NSCB general building, engineering and special
 - Electricians in Las Vegas, Clark County and Reno need an ID card from ESP after an ICC exam.
 - Every Buy now button goes straight to secure checkout at our fulfillment center, 1 Exam Prep.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## Class B general building contractors
 
@@ -277,7 +277,7 @@ Books ship from our fulfillment center, 1 Exam Prep; online courses and practice
 - [PSI: Nevada contractor exams](https://test-takers.psiexams.com/nvcon)
 - [ICC: Nevada electrician exam and ID card program](https://support.iccsafe.org/?p=1415)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ## Your exam date is not moving. *Start today.*
 

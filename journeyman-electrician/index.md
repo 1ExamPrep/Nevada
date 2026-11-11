@@ -1,7 +1,7 @@
 ---
 title: Nevada Journeyman Electrician (ICC G17) Exam Prep
 url: https://passyournevadacontractorexam.com/journeyman-electrician/
-updated: 2026-11-10
+updated: 2026-11-11
 site: Pass Your Nevada Contractor Exam
 description: Journeyman Electrician (ICC G17) exam prep for Nevada: 43 options from $59.95 to $1,090, including book package, books and courses rental, complete package.
 ---
@@ -45,7 +45,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 - The ID card is valid for 3 years and renews with continuing education from an approved provider.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
 
-Updated November 10, 2026 · prices checked against the 1 Exam Prep store
+Updated November 11, 2026 · prices checked against the 1 Exam Prep store
 
 ## Journeyman Electrician (ICC G17) options: online courses and practice
 
@@ -546,7 +546,7 @@ Printed and rental books ship from our fulfillment center, 1 Exam Prep. Online c
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 10, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 11, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 
