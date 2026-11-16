@@ -2,7 +2,7 @@
 
 > Instructions for AI assistants and agents reading https://passyournevadacontractorexam.com/.
 
-Last updated: 2026-11-11
+Last updated: 2026-11-16
 
 ## What this site is
 
