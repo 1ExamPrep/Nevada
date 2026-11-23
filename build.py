@@ -709,7 +709,7 @@ if CONTACT_FORM:
               '<p>The <a href="../faq/">Nevada exam FAQ</a> covers fees, open and closed book rules and the CMS exam. Every <a href="../#building">license page</a> lists its packages and prices and explains how that exam works, and the <a href="../blog/">blog</a> has study plans.</p></section>'
               '<section id="faq" aria-labelledby="h-cfaq"><h2 id="h-cfaq">What do people ask before they contact us?</h2>%s</section></div>'
               % (esc(BRAND), esc(c_lead), takeaways_html([
-                  "Reach us by the form on this page, by phone at %s or by email at %s." % (CFG["phone"], CFG["email"]),
+                  "Email %s, call %s or use the form on this page." % (CFG["email"], CFG["phone"]),
                   "Include your NSCB classification, your PSI or ICC exam date and any order number for a faster answer.",
                   "Orders are fulfilled by %s, so one team checks stock, shipping, rentals and course access." % FUL["name"],
                   "The Nevada State Contractors Board approves applications and PSI schedules the contractor exams."]), CFG["email"], CFG["email"], CFG["phoneTel"], esc(CFG["phone"]), form_embed, vacopy.NSCB, vacopy.PSI_NV, faq_html(c_faq)))

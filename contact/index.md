@@ -15,7 +15,7 @@ Send a message
 
 ## Key takeaways
 
-- Reach us by the form on this page, by phone at (877) 775-9400 or by email at sales@1examprep.com.
+- Email sales@1examprep.com, call (877) 775-9400 or use the form on this page.
 - Include your NSCB classification, your PSI or ICC exam date and any order number for a faster answer.
 - Orders are fulfilled by 1 Exam Prep, so one team checks stock, shipping, rentals and course access.
 - The Nevada State Contractors Board approves applications and PSI schedules the contractor exams.
