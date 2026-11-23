@@ -79,6 +79,19 @@ Before you bid, advertise or sign a contract for construction work for others. N
 
 Renew with the NSCB before the license expires, keep the bond in force and report changes to the business, such as a new qualified employee or address. A lapsed license means you cannot bid or work until it is reinstated. For electricians, an ID card expired for more than a year means taking the ICC exam again.
 
+## Where can you read about other licenses?
+
+Licensing rules change from state to state and trade to trade, so we answer the most searched questions for each one in its own post. If you work across state lines or hold more than one trade license, these companion posts cover the other exams our sites prepare you for:
+
+- [Texas contractor license: 15 questions answered](https://passyourtexascontractorexam.com/blog/texas-contractor-license-questions-answered/)
+- [Virginia contractor license: 15 questions answered](https://passyourvirginiacontractorexam.com/blog/virginia-contractor-license-questions-answered/)
+- [Mississippi contractor license: 15 questions answered](https://passyourmississippicontractorexam.com/blog/mississippi-contractor-license-questions-answered/)
+- [Florida contractor exam: 15 questions answered](https://passyourfloridacontractorexam.com/blog/florida-contractor-exam-questions-answered/)
+- [Master electrician exam: 15 questions answered](https://passyourmasterelectricianexam.com/blog/master-electrician-exam-questions-answered/)
+- [Plumbing license exam: 15 questions answered](https://passyourplumbingexam.com/blog/plumbing-license-exam-questions-answered/)
+- [HVAC license exam: 15 questions answered](https://passyourhvacexam.com/blog/hvac-license-exam-questions-answered/)
+- [NASCLA exam: 15 questions answered](https://passyournasclaexam.com/blog/nascla-exam-questions-answered/)
+
 ## Frequently asked questions
 
 Quick answers to a few more questions people ask about the exam and license.
