@@ -30,7 +30,7 @@ Latest
 
 Every Nevada contractor license takes the Business and Law (CMS) exam plus a trade exam at PSI, four years of experience and a bond. Here are straight answers to the 15 questions people search most. Each answer is short, plain and checked against the official board and exam sources.
 
-November 23, 2026 6 min read
+November 23, 2026 7 min read
 ](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
 
 ## Where should you start if your Nevada exam is coming up?
