@@ -3,7 +3,7 @@ title: Elevation and Conveyance Contractor (C-7) Book Package
 url: https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-exam-book-package/
 updated: 2026-11-23
 site: Pass Your Nevada Contractor Exam
-description: Book Package for the Nevada Elevation and Conveyance Contractor (C-7) exam: the reference books, new and unmarked. $1,045. One-click checkout.
+description: Book Package for the Nevada Elevation and Conveyance Contractor (C-7) exam: the reference books, new and unmarked. $1,145. One-click checkout.
 ---
 
 [All licenses](https://passyournevadacontractorexam.com/) /[Solar, signs and other specialty](https://passyournevadacontractorexam.com/#specialty) /[Elevation and Conveyance Contractor (C-7)](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/) /Book Package
@@ -12,9 +12,9 @@ Elevation and Conveyance Contractor (C-7) · Book Package
 
 # Nevada Elevation And Conveyance Contractor (C-7) Exam Book Package
 
-The Nevada Elevation And Conveyance Contractor (C-7) Exam Book Package is the reference books, new and unmarked for the Elevation and Conveyance Contractor (C-7) exam (Nevada), at $1,045, 9% off the $1,145 list price. Books ship from our fulfillment center, 1 Exam Prep. Buy now goes straight to secure checkout at 1 Exam Prep.
+The Nevada Elevation And Conveyance Contractor (C-7) Exam Book Package is the reference books, new and unmarked for the Elevation and Conveyance Contractor (C-7) exam (Nevada), at $1,145, 8% off the $1,245 list price. Books ship from our fulfillment center, 1 Exam Prep. Buy now goes straight to secure checkout at 1 Exam Prep.
 
-$1,045 (was $1,145) Save 9% [Buy now, go to checkout](https://1examprep.com/cart/45740268519481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com)
+$1,145 (was $1,245) Save 8% [Buy now, go to checkout](https://1examprep.com/cart/45740268519481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com)
 
 - Secure checkout, fulfilled by 1 Exam Prep
 - Books ship from our fulfillment center, 1 Exam Prep
@@ -22,7 +22,7 @@ $1,045 (was $1,145) Save 9% [Buy now, go to checkout](https://1examprep.com/cart
 
 ## Key takeaways
 
-- Book Package: $1,045, down from $1,145.
+- Book Package: $1,145, down from $1,245.
 - For the Elevation and Conveyance Contractor (C-7) exam; the reference books, new and unmarked.
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center, 1 Exam Prep. Buying does not grant exam eligibility.
@@ -35,15 +35,15 @@ Updated November 23, 2026 · prices checked against the 1 Exam Prep store
 - Written for the Elevation and Conveyance Contractor (C-7) exam
 - Books ship from our fulfillment center, 1 Exam Prep
 
-The Book Package costs $1,045 and is written for the Elevation and Conveyance Contractor (C-7) exam. Books ship from our fulfillment center, 1 Exam Prep, and Buy now takes you straight to checkout.
+The Book Package costs $1,145 and is written for the Elevation and Conveyance Contractor (C-7) exam. Books ship from our fulfillment center, 1 Exam Prep, and Buy now takes you straight to checkout.
 
 ## About this Elevation and Conveyance Contractor (C-7) package
 
 Prepare for the Nevada Elevation and Conveyance Contractor (C-7) licensing examination with an exam book package focused on the technical standards and accessibility references associated with elevator, escalator, platform lift, chairlift, personnel hoist, and conveyance-system work.
 
-The Nevada C-7 Exam Book Package includes **ASME A17.1 - Safety Code for Elevators and Escalators, 2016**, **ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017**, **ANSI A10.4 Safety Requirements for Personnel Hoists, 2016**, and **ICC A117.1-2017 Standard for Accessible and Usable Buildings and Facilities**.
+The Nevada C-7 Exam Book Package includes **ASME A17.1 - Safety Code for Elevators and Escalators, 2019**, **ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017**, **ANSI A10.4 Safety Requirements for Personnel Hoists, 2016**, and **ICC A117.1-2017 Standard for Accessible and Usable Buildings and Facilities**.
 
-The books have different roles in C-7 exam preparation. The **ASME A17.1, 2016** and **ASME A18.1, 2017** references are the books identified for exam-room use with this package. **ANSI A10.4, 2016** and **ICC A117.1-2017** are study references but are **not allowed inside the examination center**.
+The books have different roles in C-7 exam preparation. The **ASME A17.1, 2019** and **ASME A18.1, 2017** references are the books identified for exam-room use with this package. **ANSI A10.4, 2016** and **ICC A117.1-2017** are study references but are **not allowed inside the examination center**.
 
 The distinction is important when building your study plan. Candidates should become comfortable navigating the references available during the exam while using the study-only books to strengthen knowledge that needs to be understood before test day.
 
@@ -67,7 +67,7 @@ Study should also include personnel hoists and accessibility concepts through th
 
 ## Open Book Test
 
-The Nevada C-7 Elevation and Conveyance examination is an **open-book test** with specific approved references. The books identified for exam-room use in this package are **ASME A17.1 - Safety Code for Elevators and Escalators, 2016** and **ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017**.
+The Nevada C-7 Elevation and Conveyance examination is an **open-book test** with specific approved references. The books identified for exam-room use in this package are **ASME A17.1 - Safety Code for Elevators and Escalators, 2019** and **ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017**.
 
 Open-book testing does not mean every reference used for preparation can be brought into the examination. **ANSI A10.4 Safety Requirements for Personnel Hoists, 2016** and **ICC A117.1-2017 Standard for Accessible and Usable Buildings and Facilities** are study references but are **not allowed inside the examination center**.
 
@@ -109,21 +109,21 @@ Passing the C-7 trade examination is an important step, but it does not independ
 
 ## Reference Books
 
-- **ASME A17.1 - Safety Code for Elevators and Escalators, 2016**
- The safety code addresses elevators, escalators, and related conveyance equipment. It covers technical requirements involving equipment construction, installation, operation, testing, inspection, controls, safety devices, and other systems associated with elevators and escalators. This reference is identified for exam-room use with this C-7 package.
+- **ASME A17.1 - Safety Code for Elevators and Escalators, 2019**
+The safety code addresses elevators, escalators, and related conveyance equipment. It covers technical requirements involving equipment construction, installation, operation, testing, inspection, controls, safety devices, and other systems associated with elevators and escalators. This reference is identified for exam-room use with this C-7 package.
 - **ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017**
- The standard focuses on platform lifts and stairway chairlifts used to provide accessibility and vertical transportation. It addresses equipment design, installation, operation, safety devices, controls, testing, and related requirements. This reference is identified for exam-room use with this C-7 package.
+The standard focuses on platform lifts and stairway chairlifts used to provide accessibility and vertical transportation. It addresses equipment design, installation, operation, safety devices, controls, testing, and related requirements. This reference is identified for exam-room use with this C-7 package.
 - **ANSI A10.4 Safety Requirements for Personnel Hoists, 2016**
- The reference addresses safety requirements for personnel hoists used in construction and related environments. It supports preparation involving hoist equipment, operation, installation, inspection, and safety concepts. This book is **not allowed inside the examination center**.
+The reference addresses safety requirements for personnel hoists used in construction and related environments. It supports preparation involving hoist equipment, operation, installation, inspection, and safety concepts. This book is **not allowed inside the examination center**.
 - **ICC A117.1-2017 Standard for Accessible and Usable Buildings and Facilities**
- The accessibility standard addresses design requirements intended to make buildings and facilities accessible and usable. It supports preparation involving accessible routes, elevators, lifts, controls, clearances, and other accessibility considerations. This book is **not allowed inside the examination center**.
+The accessibility standard addresses design requirements intended to make buildings and facilities accessible and usable. It supports preparation involving accessible routes, elevators, lifts, controls, clearances, and other accessibility considerations. This book is **not allowed inside the examination center**.
 
 ## Exam Room Approved Books
 
-- **ASME A17.1 - Safety Code for Elevators and Escalators, 2016**
- ASME A17.1 - Safety Code for Elevators and Escalators, 2016 is one of the references identified for use inside the Nevada C-7 Elevation and Conveyance examination room.
+- **ASME A17.1 - Safety Code for Elevators and Escalators, 2019**
+ASME A17.1 - Safety Code for Elevators and Escalators, 2019 is one of the references identified for use inside the Nevada C-7 Elevation and Conveyance examination room.
 - **ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017**
- ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017 is one of the references identified for use inside the Nevada C-7 Elevation and Conveyance examination room.
+ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017 is one of the references identified for use inside the Nevada C-7 Elevation and Conveyance examination room.
 
 **ANSI A10.4 Safety Requirements for Personnel Hoists, 2016 and ICC A117.1-2017 Standard for Accessible and Usable Buildings and Facilities are not allowed inside the examination center.**
 
@@ -179,7 +179,7 @@ A consistent study structure can help you approach the Nevada C-7 examination wi
 
 ### What books are included in the Nevada C-7 Exam Book Package?
 
-The package includes ASME A17.1 - Safety Code for Elevators and Escalators, 2016; ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017; ANSI A10.4 Safety Requirements for Personnel Hoists, 2016; and ICC A117.1-2017 Standard for Accessible and Usable Buildings and Facilities.
+The package includes ASME A17.1 - Safety Code for Elevators and Escalators, 2019; ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017; ANSI A10.4 Safety Requirements for Personnel Hoists, 2016; and ICC A117.1-2017 Standard for Accessible and Usable Buildings and Facilities.
 
 ### Is the Nevada C-7 Elevation and Conveyance examination open book?
 
@@ -189,7 +189,7 @@ Yes. The Nevada C-7 trade examination is open book with specific references iden
 
 ## More on how Pass Your Nevada Contractor Exam Helps You Reach Your Goal
 
-**ASME A17.1 - Safety Code for Elevators and Escalators, 2016** and **ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017** are the exam-room references included with this package.
+**ASME A17.1 - Safety Code for Elevators and Escalators, 2019** and **ASME A18.1 Safety Standard for Platform Lifts and Stairway Chairlifts, 2017** are the exam-room references included with this package.
 
 ### Which books are not allowed inside the examination?
 
@@ -230,7 +230,7 @@ The Elevation and Conveyance Contractor (C-7) license comes from the Nevada Stat
 
 ## Other Elevation and Conveyance Contractor (C-7) options
 
-[**Books Allowed in the Exam** Nevada Elevation And Conveyance Contractor (C-7) Books Allow… $795](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-books-allowed-into-exam-package/) [Compare every Elevation and Conveyance Contractor (C-7) package →](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/) [Choose a different license →](https://passyournevadacontractorexam.com/)
+[**Books Allowed in the Exam** Nevada Elevation And Conveyance Contractor (C-7) Books Allow… $845](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-books-allowed-into-exam-package/) [Compare every Elevation and Conveyance Contractor (C-7) package →](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/) [Choose a different license →](https://passyournevadacontractorexam.com/)
 
 ### More solar, signs and other specialty
 [Solar Contractor (C-37)](https://passyournevadacontractorexam.com/c-37-solar/) · [Solar Water Heating Contractor (C-37A)](https://passyournevadacontractorexam.com/c-37a-solar-water-heating/) · [Solar Space Heating Contractor (C-37B)](https://passyournevadacontractorexam.com/c-37b-solar-space-heating/) · [Solar Air Conditioning Contractor (C-37C)](https://passyournevadacontractorexam.com/c-37c-solar-air-conditioning/) · [Solar Pool Heating Contractor (C-37D)](https://passyournevadacontractorexam.com/c-37d-solar-pool-heating/) · [Nevada exam FAQ](https://passyournevadacontractorexam.com/faq/) · [Study tips](https://passyournevadacontractorexam.com/blog/)
@@ -239,7 +239,7 @@ The Elevation and Conveyance Contractor (C-7) license comes from the Nevada Stat
 
 ### How much is the Nevada Elevation And Conveyance Contractor (C-7) Exam Book Package?
 
-$1,045. The price at checkout is the one that applies, and it is shown before you pay.
+$1,145. The price at checkout is the one that applies, and it is shown before you pay.
 
 ### What is included?
 

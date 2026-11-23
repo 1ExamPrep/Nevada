@@ -3,14 +3,14 @@ title: Nevada Elevation and Conveyance Contractor (C-7) Exam Prep
 url: https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/
 updated: 2026-11-23
 site: Pass Your Nevada Contractor Exam
-description: Elevation and Conveyance Contractor (C-7) exam prep for Nevada: 2 options from $795 to $1,045, including book package, books allowed in the exam. One-click.
+description: Elevation and Conveyance Contractor (C-7) exam prep for Nevada: 2 options from $845 to $1,145, including book package, books allowed in the exam. One-click.
 ---
 
 [All licenses](https://passyournevadacontractorexam.com/) /[Solar, signs and other specialty](https://passyournevadacontractorexam.com/#specialty) /Elevation and Conveyance Contractor (C-7)
 
 # Elevation and Conveyance Contractor (C-7) exam prep
 
-The Nevada Elevation and Conveyance Contractor (C-7) license is an NSCB Class C specialty subclassification for specialty work. It takes four years of experience, the Business and Law (CMS) exam, the C-7 trade exam, a bond and a monetary limit. Here are 2 packages, from $795 to $1,045, each with one-click checkout.
+The Nevada Elevation and Conveyance Contractor (C-7) license is an NSCB Class C specialty subclassification for specialty work. It takes four years of experience, the Business and Law (CMS) exam, the C-7 trade exam, a bond and a monetary limit. Here are 2 packages, from $845 to $1,145, each with one-click checkout.
 See the packages
 PackagesCompareHow the exam worksFAQSources
 
@@ -18,7 +18,7 @@ Quick facts
 
 Price range
 
-$795 to $1,045
+$845 to $1,145
 
 Options
 
@@ -36,7 +36,7 @@ Not sure which one? Call [(877) 775-9400](tel:+18777759400)
 
 ## Key takeaways
 
-- 2 options for the Elevation and Conveyance Contractor (C-7) exam, from $795 to $1,045.
+- 2 options for the Elevation and Conveyance Contractor (C-7) exam, from $845 to $1,145.
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - The CMS is open book with the Construction Business and Law Manual for Nevada; trade exams are closed book except for the code references their outline allows.
 - Buy now goes straight to secure checkout; books ship from 1 Exam Prep and online courses arrive by email.
@@ -52,7 +52,7 @@ Book Package
 
 The reference books, new and unmarked.
 
-$1,045 (was $1,145) Save 9%
+$1,145 (was $1,245) Save 8%
 [Buy now](https://1examprep.com/cart/45740268519481:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-exam-book-package/)
 
 Books Allowed in the Exam
@@ -60,7 +60,7 @@ Books Allowed in the Exam
 
 The references PSI allows in the exam room.
 
-$795 (was $895) Save 11%
+$845 (was $945) Save 11%
 [Buy now](https://1examprep.com/cart/45815313432633:1?attributes%5BSite%5D=passyournevadacontractorexam.com&ref=passyournevadacontractorexam.com) · [Details](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-books-allowed-into-exam-package/)
 
 ## How do the Elevation and Conveyance Contractor (C-7) options compare?
@@ -68,8 +68,8 @@ $795 (was $895) Save 11%
 Prices are the starting price for each option; some offer add-ons at checkout.
 
 Option | What you get | Price
-[Book Package](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-exam-book-package/) | the reference books, new and unmarked | $1,045
-[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $795
+[Book Package](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-exam-book-package/) | the reference books, new and unmarked | $1,145
+[Books Allowed in the Exam](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/nevada-elevation-and-conveyance-contractor-c-7-books-allowed-into-exam-package/) | the references PSI allows in the exam room | $845
 
 ## How does the Elevation and Conveyance Contractor (C-7) exam work?
 
@@ -82,13 +82,13 @@ The Elevation and Conveyance Contractor (C-7) license comes from the Nevada Stat
 
 ### Which Elevation and Conveyance Contractor (C-7) option should I choose?
 
-The Books Allowed in the Exam at $795 is the lightest way into the Elevation and Conveyance Contractor (C-7) exam: the references PSI allows in the exam room. The Book Package at $1,045 is the most complete option: the reference books, new and unmarked. Candidates who fail usually run out of time rather than knowledge, so pick the option that gets you fastest through the references, and call (877) 775-9400 if you are unsure.
+The Books Allowed in the Exam at $845 is the lightest way into the Elevation and Conveyance Contractor (C-7) exam: the references PSI allows in the exam room. The Book Package at $1,145 is the most complete option: the reference books, new and unmarked. Candidates who fail usually run out of time rather than knowledge, so pick the option that gets you fastest through the references, and call (877) 775-9400 if you are unsure.
 
 ## Elevation and Conveyance Contractor (C-7) exam questions
 
 ### How much does Elevation and Conveyance Contractor (C-7) exam prep cost?
 
-Elevation and Conveyance Contractor (C-7) exam prep runs from $795 to $1,045 across 2 options: Book Package $1,045; Books Allowed in the Exam $795.
+Elevation and Conveyance Contractor (C-7) exam prep runs from $845 to $1,145 across 2 options: Book Package $1,145; Books Allowed in the Exam $845.
 
 ### Is the Elevation and Conveyance Contractor (C-7) exam open book?
 

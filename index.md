@@ -114,7 +114,7 @@ Other C specialty licenses: the C-37 solar family, C-6B signs, C-7 elevators, C-
 - [**Solar Air Conditioning Contractor (C-37C)** 2 options from $199](https://passyournevadacontractorexam.com/c-37c-solar-air-conditioning/)
 - [**Solar Pool Heating Contractor (C-37D)** 2 options from $199](https://passyournevadacontractorexam.com/c-37d-solar-pool-heating/)
 - [**Sign Contractor (C-6B)** 2 options from $345](https://passyournevadacontractorexam.com/c-6b-sign/)
-- [**Elevation and Conveyance Contractor (C-7)** 2 options from $795](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/)
+- [**Elevation and Conveyance Contractor (C-7)** 2 options from $845](https://passyournevadacontractorexam.com/c-7-elevation-and-conveyance/)
 - [**Landscape Contractor (C-10)** 1 option from $445](https://passyournevadacontractorexam.com/c-10-landscape/)
 - [**Drilling Wells Contractor (C-23)** 2 options from $29](https://passyournevadacontractorexam.com/c-23-drilling-wells/)
 - [**Fire Detection Contractor (C-41C)** 2 options from $495](https://passyournevadacontractorexam.com/c-41c-fire-detection/)
