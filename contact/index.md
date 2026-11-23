@@ -1,7 +1,7 @@
 ---
 title: Contact Us | Pass Your Nevada Contractor Exam
 url: https://passyournevadacontractorexam.com/contact/
-updated: 2026-11-20
+updated: 2026-11-23
 site: Pass Your Nevada Contractor Exam
 description: Questions about which Nevada license you need, which package fits your exam, or an order you already placed? Send a message with the form below or call (877).
 ---
@@ -20,7 +20,7 @@ Send a message
 - Orders are fulfilled by 1 Exam Prep, so one team checks stock, shipping, rentals and course access.
 - The Nevada State Contractors Board approves applications and PSI schedules the contractor exams.
 
-Updated November 20, 2026 · prices checked against the 1 Exam Prep store
+Updated November 23, 2026 · prices checked against the 1 Exam Prep store
 
 ## How do you send us a message?
 
