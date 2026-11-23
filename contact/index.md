@@ -13,6 +13,15 @@ description: Questions about which Nevada license you need, which package fits y
 Questions about which Nevada license you need, which package fits your exam, or an order you already placed? Send a message with the form below or call (877) 775-9400. Orders are fulfilled by 1 Exam Prep, so one team checks stock, shipping, rentals and course access, and you hear back from someone who knows the Nevada exams.
 Send a message
 
+## Key takeaways
+
+- Reach us by the form on this page, by phone at (877) 775-9400 or by email at sales@1examprep.com.
+- Include your NSCB classification, your PSI or ICC exam date and any order number for a faster answer.
+- Orders are fulfilled by 1 Exam Prep, so one team checks stock, shipping, rentals and course access.
+- The Nevada State Contractors Board approves applications and PSI schedules the contractor exams.
+
+Updated November 20, 2026 · prices checked against the 1 Exam Prep store
+
 ## How do you send us a message?
 
 Fill in the form and we will get back to you. You can also email [sales@1examprep.com](mailto:sales@1examprep.com). For anything urgent about an exam date coming up soon, calling [(877) 775-9400](tel:+18777759400) is the quickest way to reach a person.

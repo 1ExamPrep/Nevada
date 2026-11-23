@@ -44,7 +44,7 @@ if LOGO_NAV:
         from PIL import Image as _I
         _w, _h = _I.open(os.path.join(ROOT, LOGO_NAV)).size; NAV_W = round(_w * NAV_H / _h)
     except Exception: pass
-TODAY = datetime.date.today().isoformat()
+TODAY = os.environ.get("BUILD_DATE") or datetime.date.today().isoformat()  # BUILD_DATE pins the "last checked" date when only copy changed
 LAUNCH = CFG.get("launched", TODAY)
 
 # ---------- products, classes ----------
@@ -690,7 +690,7 @@ if CONTACT_FORM:
               "Orders are fulfilled by %s, so one team checks stock, shipping, rentals and course access, and you hear back from someone who knows the Nevada exams." % (CFG["phone"], FUL["name"]))
     c_main = ('<section class="hero hero--class" aria-labelledby="h1"><div class="wrap"><nav class="crumb" aria-label="Breadcrumb"><a href="../">All licenses</a><span>/</span>Contact</nav>'
               '<h1 id="h1">Contact %s</h1><p class="lead" id="lead">%s</p><a class="btn btn-buy" href="#form">Send a message</a></div></section>'
-              '<div class="wrap contact-page">'
+              '<div class="wrap contact-page">%s'
               '<section id="form" class="contact-form" aria-labelledby="h-form"><h2 id="h-form">How do you send us a message?</h2>'
               '<p>Fill in the form and we will get back to you. You can also email <a href="mailto:%s">%s</a>. For anything urgent about an exam date coming up soon, calling <a href="tel:%s">%s</a> is the quickest way to reach a person.</p>'
               '<div class="contact-embed">%s</div></section>'
@@ -708,7 +708,11 @@ if CONTACT_FORM:
               '<section aria-labelledby="h-more"><h2 id="h-more">Where else can you find answers right away?</h2>'
               '<p>The <a href="../faq/">Nevada exam FAQ</a> covers fees, open and closed book rules and the CMS exam. Every <a href="../#building">license page</a> lists its packages and prices and explains how that exam works, and the <a href="../blog/">blog</a> has study plans.</p></section>'
               '<section id="faq" aria-labelledby="h-cfaq"><h2 id="h-cfaq">What do people ask before they contact us?</h2>%s</section></div>'
-              % (esc(BRAND), esc(c_lead), CFG["email"], CFG["email"], CFG["phoneTel"], esc(CFG["phone"]), form_embed, vacopy.NSCB, vacopy.PSI_NV, faq_html(c_faq)))
+              % (esc(BRAND), esc(c_lead), takeaways_html([
+                  "Reach us by the form on this page, by phone at %s or by email at %s." % (CFG["phone"], CFG["email"]),
+                  "Include your NSCB classification, your PSI or ICC exam date and any order number for a faster answer.",
+                  "Orders are fulfilled by %s, so one team checks stock, shipping, rentals and course access." % FUL["name"],
+                  "The Nevada State Contractors Board approves applications and PSI schedules the contractor exams."]), CFG["email"], CFG["email"], CFG["phoneTel"], esc(CFG["phone"]), form_embed, vacopy.NSCB, vacopy.PSI_NV, faq_html(c_faq)))
     urls.append(render(["contact"], fit_title("Contact Us | %s" % BRAND, "Contact %s" % BRAND), c_lead, c_main, CFG.get("logo"),
                        extra_ld=[crumbs_ld([("Home", ""), ("Contact", "contact/")]), faq_ld(c_faq)]))
 
