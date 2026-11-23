@@ -11,19 +11,27 @@ description: Study plans, NSCB licensing rules and exam strategy for Nevada cont
 # The Nevada contractor exam blog
 
 Study plans, NSCB licensing rules and exam strategy for Nevada contractor, Business and Law and electrician card exams, written for people who work full days and study at night. Each post links to the license it covers, and every rule we quote links to the board that sets it.
+[All](https://passyournevadacontractorexam.com/blog/) · [business and law](https://passyournevadacontractorexam.com/blog/tag/business-and-law/) · [cms](https://passyournevadacontractorexam.com/blog/tag/cms/) · [nevada contractor license](https://passyournevadacontractorexam.com/blog/tag/nevada-contractor-license/) · [nscb](https://passyournevadacontractorexam.com/blog/tag/nscb/)
 
 ## Key takeaways
 
-- 0 posts so far, written for Nevada contractor and electrician candidates.
-- Topics cover study strategy, using the references and NSCB licensing rules.
+- 1 post so far, written for Nevada contractor and electrician candidates.
+- Topics: business and law, cms, nevada contractor license, nscb.
 - Exam prep for 86 Nevada licenses, with every rule linked to the board that sets it.
 - New posts appear in the RSS feed at /blog/feed.xml the moment they are published.
 
 Updated November 23, 2026 · prices checked against the 1 Exam Prep store
 
 Most people who fail a licensing exam do not fail on knowledge. They run out of time in the references, misread an exception, or bring the wrong edition. New posts land here first and in the [RSS feed](https://passyournevadacontractorexam.com/blog/feed.xml). When a post is about one license, it links straight to that license page so you can act on it.
+[
+Latest
 
-No posts yet. The first one is on its way.
+## Nevada Contractor License: 15 Questions People Ask, Answered
+
+Every Nevada contractor license takes the Business and Law (CMS) exam plus a trade exam at PSI, four years of experience and a bond. Here are straight answers to the 15 questions people search most. Each answer is short, plain and checked against the official board and exam sources.
+
+November 23, 2026 6 min read
+](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
 
 ## Where should you start if your Nevada exam is coming up?
 

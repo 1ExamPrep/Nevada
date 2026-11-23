@@ -21,7 +21,7 @@ description: 21 answers about Nevada contractor, Business and Law and electricia
 
 Updated November 23, 2026 · prices checked against the 1 Exam Prep store
 
-How do you get licensed in Nevada? 6How do the Nevada exams work? 6How should you study for it? 4How does ordering work? 5Where are the questions for building, electrician and CMS exams? 21Where are the questions for the C trade licenses? 38Where are the questions for specialty and Class A licenses? 27
+How do you get licensed in Nevada? 6How do the Nevada exams work? 6How should you study for it? 4How does ordering work? 5What do our latest posts answer? 4Where are the questions for building, electrician and CMS exams? 21Where are the questions for the C trade licenses? 38Where are the questions for specialty and Class A licenses? 27
 
 ## How do you get licensed in Nevada?
 
@@ -114,6 +114,26 @@ No. The NSCB approves your application and sends an eligibility letter, then you
 ### Can I ask a question before I buy?
 
 Yes. Call (877) 775-9400 or email sales@1examprep.com and say which license you are going for.
+
+## What do our latest posts answer?
+
+From our newest blog posts. Each answer links to the full post.
+
+### How many tries do I get at the PSI exams?
+
+Three attempts before the application is void. [Read the post](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
+
+### Can I use NASCLA for the Nevada B license?
+
+Yes. Nevada accepts a passing NASCLA Commercial General Building exam in place of the B trade exam; the CMS is still required. [Read the post](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
+
+### Who gives the Nevada contractor exams?
+
+PSI gives both the Business and Law (CMS) exam and the trade exams. The CMS is open book. [Read the post](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
+
+### Does every Nevada contractor need a bond?
+
+Yes. The Board sets a bond from $1,000 to $500,000 for each license, based on the license and the applicant. [Read the post](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
 
 ## Where are the questions for building, electrician and CMS exams?
 

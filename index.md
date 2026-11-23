@@ -232,6 +232,13 @@ Start with an online course, get the reference books highlighted and tabbed, or 
 
 Buy now opens secure checkout at 1 Exam Prep. Books ship from the fulfillment center and online courses arrive by email.
 
+## What is new on the blog?
+
+Study plans and Nevada licensing news, each post checked against the board that sets the rule.
+
+[November 23, 2026**Nevada Contractor License: 15 Questions People Ask, Answered** Every Nevada contractor license takes the Business and Law (CMS) exam plus a trade exam at PSI, four years of experience and a bond. Here are.](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
+[See every post](https://passyournevadacontractorexam.com/blog/)
+
 ## What do people ask before buying?
 
 ### Which Nevada license do I need?
