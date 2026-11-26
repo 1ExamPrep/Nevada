@@ -1,7 +1,7 @@
 ---
 title: Nevada Contractor Exam Prep for Every NSCB License
 url: https://passyournevadacontractorexam.com/
-updated: 2026-11-23
+updated: 2026-11-26
 site: Pass Your Nevada Contractor Exam
 description: Nevada exam prep for 86 licenses: NSCB A, B and C classifications, the Business and Law (CMS) exam and electrician ID card exams. Books, courses and The 1.
 ---
@@ -20,7 +20,7 @@ Exam prep for 86 Nevada licenses: NSCB general building, engineering and special
 - Electricians in Las Vegas, Clark County and Reno need an ID card from ESP after an ICC exam.
 - Every Buy now button goes straight to secure checkout at our fulfillment center, 1 Exam Prep.
 
-Updated November 23, 2026 · prices checked against the 1 Exam Prep store
+Updated November 26, 2026 · prices checked against the 1 Exam Prep store
 
 ## Class B general building contractors
 
@@ -236,7 +236,7 @@ Buy now opens secure checkout at 1 Exam Prep. Books ship from the fulfillment ce
 
 Study plans and Nevada licensing news, each post checked against the board that sets the rule.
 
-[November 23, 2026**Nevada Contractor License: 15 Questions People Ask, Answered** Every Nevada contractor license takes the Business and Law (CMS) exam plus a trade exam at PSI, four years of experience and a bond. Here are.](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
+[November 26, 2026**What’s Included in The 1 Package for Nevada Contractor Exam Prep? Comparing Your Best Options** If you’re preparing for your Nevada contractor license exams, The 1 Package from Pass Your Nevada Contractor Exam is a top choice that combines.](https://passyournevadacontractorexam.com/blog/the-1-package-nevada-contractor-exam-prep/) · [November 23, 2026**Nevada Contractor License: 15 Questions People Ask, Answered** Every Nevada contractor license takes the Business and Law (CMS) exam plus a trade exam at PSI, four years of experience and a bond. Here are.](https://passyournevadacontractorexam.com/blog/nevada-contractor-license-questions-answered/)
 [See every post](https://passyournevadacontractorexam.com/blog/)
 
 ## What do people ask before buying?
@@ -284,7 +284,7 @@ Books ship from our fulfillment center, 1 Exam Prep; online courses and practice
 - [PSI: Nevada contractor exams](https://test-takers.psiexams.com/nvcon)
 - [ICC: Nevada electrician exam and ID card program](https://support.iccsafe.org/?p=1415)
 
-Licensing facts checked against these pages; last updated November 23, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 26, 2026. Rules change, so confirm with the board before you apply.
 
 ## Your exam date is not moving. *Start today.*
 

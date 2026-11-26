@@ -1,7 +1,7 @@
 ---
 title: NASCLA Commercial General Building Contractor Online Exam
 url: https://passyournevadacontractorexam.com/nascla-commercial-general-building/nascla-commercial-general-building-contractor-online-exam-prep-course/
-updated: 2026-11-23
+updated: 2026-11-26
 site: Pass Your Nevada Contractor Exam
 description: Online Exam Prep Course for the Nevada NASCLA Commercial General Building Contractor exam: an online course with practice exams. $395. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $395 (was $440) Save 10% [Buy now, go to checkout](https://1examprep.com/cart/44
 - Nevada accepts a passing NASCLA Commercial General Building score in place of the B trade exam; the CMS is still required.
 - Online access arrives by email after purchase. Buying does not grant exam eligibility.
 
-Updated November 23, 2026 · prices checked against the 1 Exam Prep store
+Updated November 26, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Online Exam Prep Course include?
 
@@ -147,7 +147,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: B-7 Restricted License bulletin, March 17, 2026](https://www.nvcontractorsboard.com/wp-content/uploads/2026/03/03-17-2026-Restricted-License-Industry-Bulletin_2026.pdf)
 - [NASCLA accredited examinations](https://www.nascla.org/page/AccreditedExam)
 
-Licensing facts checked against these pages; last updated November 23, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 26, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 
