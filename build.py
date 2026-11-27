@@ -198,6 +198,9 @@ def footer(rel):
             '<p class="fine"><strong>%s</strong> &copy; <span data-year>%s</span> &middot; %s Prices and availability come from the fulfillment store and were last checked <time datetime="%s">%s</time>; the price at checkout is the one that applies. Not affiliated with the Nevada State Contractors Board, Electrical Safety Professionals, PSI, ICC, NASCLA or any Nevada city or county. Buying study material does not grant exam eligibility or a license.</p></div></footer>'
             % (home, esc(CFG.get("tagline", "")), CFG["phoneTel"], esc(CFG["phone"]), CFG["email"], CFG["email"], pop, home, len(CLASSES), home, home, home, rel, rel, rel, rel, soc,
                esc(BRAND), TODAY[:4], esc(FUL.get("note") or ("Orders are processed and shipped by %s, our fulfillment center." % FUL["name"])), TODAY, nice_day(TODAY)))
+_footer_base = footer
+def footer(rel):
+    return _footer_base(rel).replace('faq/">FAQ</a></li>', 'faq/">FAQ</a></li><li><a href="%sreviews/">Customer reviews</a></li>' % rel, 1)
 def takeaways_html(items, title="Key takeaways", hid="key-takeaways"):
     items = [i for i in items if i][:5]
     if not items: return ""
@@ -715,6 +718,19 @@ if CONTACT_FORM:
                   "The Nevada State Contractors Board approves applications and PSI schedules the contractor exams."]), CFG["email"], CFG["email"], CFG["phoneTel"], esc(CFG["phone"]), form_embed, vacopy.NSCB, vacopy.PSI_NV, faq_html(c_faq)))
     urls.append(render(["contact"], fit_title("Contact Us | %s" % BRAND, "Contact %s" % BRAND), c_lead, c_main, CFG.get("logo"),
                        extra_ld=[crumbs_ld([("Home", ""), ("Contact", "contact/")]), faq_ld(c_faq)]))
+
+# ---------- /reviews/ : Google reviews + Shopper Approved (widgets injected by shared/va.js) ----------
+sys.path.insert(0, os.path.join(ROOT, "tools")); import reviewskit as rk
+_rc = rk.content(BRAND, "Nevada contractor exam", CFG["phone"], CFG["phoneTel"], CFG["email"], faq_url="../faq/", contact_url="tel:" + CFG["phoneTel"], home_url="../")
+_rsecs = "".join('<section aria-labelledby="h-%s"><h2 id="h-%s">%s</h2>%s</section>' % (i, i, esc(h), b) for i, h, b in _rc["sections"])
+_rsrc = ('<section class="sources" aria-labelledby="h-sources"><h2 id="h-sources">Sources</h2><ul>%s</ul><p class="upd">Reviews load live from Google and Shopper Approved; page updated <time datetime="%s">%s</time>.</p></section>'
+         % ("".join('<li><a href="%s" rel="noopener" target="_blank">%s</a></li>' % (esc(u), esc(n)) for n, u in _rc["sources"]), TODAY, nice_day(TODAY)))
+_rmain = ('<section class="hero hero--class" aria-labelledby="h1"><div class="wrap"><nav class="crumb" aria-label="Breadcrumb"><a href="../">Home</a><span>/</span>Reviews</nav>'
+          '<h1 id="h1">%s</h1><p class="lead" id="lead">%s</p></div></section>'
+          '<div class="wrap reviews-page">%s%s<section id="faq" aria-labelledby="h-rfaq"><h2 id="h-rfaq">What do people ask about our reviews?</h2>%s</section>%s</div>'
+          % (esc(_rc["h1"]), esc(_rc["lead"]), takeaways_html(_rc["takeaways"]), _rsecs, faq_html(_rc["faq"]), _rsrc))
+urls.append(render(["reviews"], fit_title(_rc["title"], "1 Exam Prep Customer Reviews and Ratings"), _rc["desc"], _rmain, CFG.get("logo"),
+                   extra_ld=[crumbs_ld([("Home", ""), ("Reviews", "reviews/")]), faq_ld(_rc["faq"])]))
 
 # ---------- 404: unknown paths go to the closest real page ----------
 nf = """<!doctype html><html lang="en"><head><meta charset="utf-8"><title>Page not found</title><meta name="robots" content="noindex">
