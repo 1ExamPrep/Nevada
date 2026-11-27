@@ -1,7 +1,7 @@
 ---
 title: Nevada Drywall Contractor (C-4E) Live Virtual Training
 url: https://passyournevadacontractorexam.com/c-4e-drywall/nevada-drywall-contractor-c-4e-exam-prep-live-virtual-plus-self-study-training/
-updated: 2026-11-26
+updated: 2026-11-27
 site: Pass Your Nevada Contractor Exam
 description: Live Virtual Training for the Nevada Drywall Contractor (C-4E) exam: live virtual classes plus self-study. $595. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $595 (was $795) Save 25% [Buy now, go to checkout](https://1examprep.com/cart/46
 - Every Nevada contractor license needs the Business and Law (CMS) exam plus a trade exam for the classification, both given by PSI.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 26, 2026 · prices checked against the 1 Exam Prep store
+Updated November 27, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Live Virtual Training include?
 
@@ -279,7 +279,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [NSCB: license bonds](https://nvcontractorsboard.com/bonds)
 - [NSCB: new license application](https://www.nvcontractorsboard.com/wp-content/uploads/2026/08/New-License-Application.pdf)
 
-Licensing facts checked against these pages; last updated November 26, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 27, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 

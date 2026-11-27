@@ -1,7 +1,7 @@
 ---
 title: Low Voltage Electrician (ICC G21) Live Virtual Training
 url: https://passyournevadacontractorexam.com/low-voltage-electrician/nevada-low-voltage-electrician-icc-g21-n-exam-prep-live-virtual-plus-self-study-training/
-updated: 2026-11-26
+updated: 2026-11-27
 site: Pass Your Nevada Contractor Exam
 description: Live Virtual Training for the Nevada Low Voltage Electrician (ICC G21) exam: live virtual classes plus self-study. $495. One-click checkout.
 ---
@@ -27,7 +27,7 @@ $495 (was $695) Save 29% [Buy now, go to checkout](https://1examprep.com/cart/46
 - Nevada has no state electrician license; Las Vegas, Clark County and Reno require an Electrical Qualifications ID card on every job site.
 - Books ship from our fulfillment center; online parts arrive by email. Buying does not grant exam eligibility.
 
-Updated November 26, 2026 · prices checked against the 1 Exam Prep store
+Updated November 27, 2026 · prices checked against the 1 Exam Prep store
 
 ## What does the Live Virtual Training include?
 
@@ -309,7 +309,7 @@ Online courses and practice exams arrive by email after purchase. Books ship fro
 - [City of Reno: electrical and plumbing journeyman cards](https://reno.gov/business-development/development-services/electrical-plumbing-journeyman-cards.php)
 - [ICC certification exams](https://www.iccsafe.org/professional-development/certification/)
 
-Licensing facts checked against these pages; last updated November 26, 2026. Rules change, so confirm with the board before you apply.
+Licensing facts checked against these pages; last updated November 27, 2026. Rules change, so confirm with the board before you apply.
 
 ---
 
